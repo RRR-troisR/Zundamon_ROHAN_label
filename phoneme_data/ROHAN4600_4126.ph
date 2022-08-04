@@ -1,0 +1,1 @@
+o i pau ny a N k o w a i r o n a d o pau o k a sh i n a k o t o o k a N g a e t e w a i k e n a i z e

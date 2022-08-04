@@ -1,0 +1,1 @@
+ny e z u g o d a w a pau hy a k u d o r u sh i h e e d e pau u m e t o sh i p o r a t a o k a cl t e k i t a

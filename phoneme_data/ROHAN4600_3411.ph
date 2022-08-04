@@ -1,0 +1,1 @@
+ty o y a ty a o k o o p a s u n i i r e r u k o t o e h i h a N g a a r i pau s o r e w a t a d a sh i i t o o m o i m a s U

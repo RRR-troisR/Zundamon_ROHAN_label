@@ -1,0 +1,1 @@
+n a n o k a n i k a cl t a k a w a g u ts u g a pau f i cl t o sh I t e m a s U

@@ -1,0 +1,1 @@
+d o r a b i i ny u n o m o k U t e k i w a pau t a i k i N s e k i gy o k u d e s u

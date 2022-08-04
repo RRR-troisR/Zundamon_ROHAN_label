@@ -1,0 +1,1 @@
+n a n i m o n o k a n i s e ky u r i t i g a y a b u r a r e pau sh o o ry o n i k a r a r e t e o r i m a s U

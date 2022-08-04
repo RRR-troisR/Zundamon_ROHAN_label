@@ -1,0 +1,1 @@
+h a n a sh I t e k u r e pau b i r u hy o o s a m a w a j i h i f U k a k u pau k I k e b a m u g e n i sh i n a i h a z u d a

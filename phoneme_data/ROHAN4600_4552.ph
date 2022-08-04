@@ -1,0 +1,1 @@
+j i k o o n o s e N s a a g a h a N n o o s e z u pau p u r a s U ch i cl k u n o f U t a g a a k a n a i n o d e s U g a

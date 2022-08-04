@@ -1,0 +1,1 @@
+k u e cl k e N b u cl sh u w a pau sh I ch i y a d e ky o k a n a k U ky u p u r a o b a i ky a k U sh i m a sh I t a

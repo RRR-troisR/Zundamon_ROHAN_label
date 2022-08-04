@@ -1,0 +1,1 @@
+v o r o n a k u N pau j u k U s u i sh I t a k e ry a pau b e cl sh I ts u n i s o f a g a a r i m a s U y o

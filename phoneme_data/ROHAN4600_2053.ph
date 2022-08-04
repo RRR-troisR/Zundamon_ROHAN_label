@@ -1,0 +1,1 @@
+gy a N g u n i n a r u y u m e w a pau m a b o r o sh I t o k i e m a sh I t a

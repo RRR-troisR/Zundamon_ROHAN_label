@@ -1,0 +1,1 @@
+s o N k e e s u r u o sh o o s a N w a pau i ts u m o by a k u d a N n o k a o r i g a s u r u

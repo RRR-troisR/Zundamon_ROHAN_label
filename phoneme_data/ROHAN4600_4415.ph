@@ -1,0 +1,1 @@
+gy a k u m u k i n i n o b i r u n o d e pau s o d a t e r u n o w a t a i h e N d e s U

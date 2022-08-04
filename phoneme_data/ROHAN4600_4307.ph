@@ -1,0 +1,1 @@
+ch a r u k i e n o pau m a h o o o t o n a e r u h a y a s a w a pau k o n o k u n i d e m o t o cl p U k u r a s u d a

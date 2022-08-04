@@ -1,0 +1,1 @@
+w a t a sh i n i w a pau s e k o s e k o sh I t a ty u r o s u n i sh o o b a i g a ts U t o m a r u t o w a pau o m o e m a s e N g a n e

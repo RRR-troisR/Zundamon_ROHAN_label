@@ -1,0 +1,1 @@
+ry u cl ts o u w a pau h e r a h e r a t o w a r a i n a g a r a pau ch a cl k a r i n a b e b u gy o o n o p o j i sh o N n i ts u i t a

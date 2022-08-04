@@ -1,0 +1,1 @@
+a o i sh i b u g a k i o k U ch i n i sh I t a g a pau m a z u s u g i t e o m o w a z u p e cl t o h a k i d a sh I t a

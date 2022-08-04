@@ -1,0 +1,1 @@
+a t a t a k a n a h i g a s a s U h e y a d e pau a b i ny o N n o h a sh i d e o u t a u

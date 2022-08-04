@@ -1,0 +1,1 @@
+y u r u ky e b i cl ch i o ch i i m u n i m u k a e m a sh o o

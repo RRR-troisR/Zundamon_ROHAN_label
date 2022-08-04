@@ -1,0 +1,1 @@
+ny u u z u w i i k u o pau z a r u ts i a g a k a i sh i m e t a

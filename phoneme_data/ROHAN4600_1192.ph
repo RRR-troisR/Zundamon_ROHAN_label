@@ -1,0 +1,1 @@
+p e t e N n i k a k e t e pau p e i sh e N s u o z o o ny o k a r a ts u r e s a cl t a

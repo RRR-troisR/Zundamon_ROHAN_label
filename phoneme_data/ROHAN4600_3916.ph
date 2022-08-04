@@ -1,0 +1,1 @@
+k o r e d a k e sh o o k o g a a r e b a pau m o o t a m i z o o n i w a pau g u u n o n e m o d e n a i h a z u d a

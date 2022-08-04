@@ -1,0 +1,1 @@
+dy u f u r o n o sh i b u i s e N ky o k u n i pau w o o z a a w a ch a m e cl k e o o b o e r u

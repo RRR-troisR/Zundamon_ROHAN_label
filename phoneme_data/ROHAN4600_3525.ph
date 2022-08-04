@@ -1,0 +1,1 @@
+p i e r i i n a w a pau g o o g a N f U s o N n a b i ch i i ny o n i m i k i r i o ts U k e pau r a i N o b u r o cl k u sh I t a

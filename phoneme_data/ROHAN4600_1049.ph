@@ -1,0 +1,1 @@
+py a sh i n a g a d o k o k a s e cl p o g a t o u t o pau p i cl p i w a m e o s o m u k e m a sh I t a

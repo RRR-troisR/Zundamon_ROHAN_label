@@ -1,0 +1,1 @@
+k a n i ch i o ch u u ch u u s u w a r e t a t o pau g u i n e s u w a h a r e t a k a sh o n i m u h i o n u cl t a

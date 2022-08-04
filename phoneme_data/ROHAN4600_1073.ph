@@ -1,0 +1,1 @@
+gy e r e k u w a d a i e cl t o n o t a m e pau j a N k U f u u d o o b o k u m e ts u sh I t a g a cl t e m a s U

@@ -1,0 +1,1 @@
+o m o i n i m o ts u o s a g e t e pau r a s U k i e r u n o t o o r i o k a cl p o s u r u

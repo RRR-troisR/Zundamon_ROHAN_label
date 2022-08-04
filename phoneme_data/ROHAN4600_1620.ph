@@ -1,0 +1,1 @@
+y o k U sh i ts u n i k a b i g a h a e t a n o d e pau s a k I h o d o k a r a k a my u g a j o ky o sh I t e m a s U

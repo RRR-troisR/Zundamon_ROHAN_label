@@ -1,0 +1,1 @@
+m o o j a n o m u r e n i ch o cl k a i o d a s u n o

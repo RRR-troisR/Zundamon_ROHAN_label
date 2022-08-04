@@ -1,0 +1,1 @@
+k o n o r a n o b e pau z e cl t a i f u r o sh I k i h i r o g e s u g i d a k a r a pau k e ts u m a ts u m a d e n i t a t a N d e n e

@@ -1,0 +1,1 @@
+o cl t o pau b u r u g o o ny u w a i N n i s o e r u ch i i z u g a pau k o g e t e sh i m a cl t a

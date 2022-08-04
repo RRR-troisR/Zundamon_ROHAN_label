@@ -1,0 +1,1 @@
+sh a f u i k u w a pau k e N n i N f u b a ts u n o k a k u g o d e s U k a n a

@@ -1,0 +1,1 @@
+y a s u cl p o i n u n o n o t o k i N d a g a pau y o n a b e d e t e z u k u r i sh I t a h a h a n o m a g o k o r o g a a r i g a t a i

@@ -1,0 +1,1 @@
+n u m a z u k a i h i N k o o e N d e w a pau s U t a N p u r a r i i g a k a i s a i s a r e t e i m a s U

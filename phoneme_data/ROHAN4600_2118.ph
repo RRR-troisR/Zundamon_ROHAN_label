@@ -1,0 +1,1 @@
+y o t e e g a h a y a m a r i pau z o f o o t o g a ny u u k a sh I t a

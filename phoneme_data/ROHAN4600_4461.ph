@@ -1,0 +1,1 @@
+r i N g u i i n i w a pau t o n a r i n o k o o b o o d e s e e m e N s a r e t e i m a s U

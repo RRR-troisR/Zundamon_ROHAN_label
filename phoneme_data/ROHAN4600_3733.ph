@@ -1,0 +1,1 @@
+w a i N n a d o j o o z o o sh u w a pau m a N ch e s U t a a n o sh i s e ts u n i ch o z o o s a r e r u

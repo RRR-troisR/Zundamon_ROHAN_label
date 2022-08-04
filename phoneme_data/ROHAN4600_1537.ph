@@ -1,0 +1,1 @@
+b a a s o r o my u u w a ts u N d o r a s o d a ch i d e pau t o o y u g a k a k a s e n a i

@@ -1,0 +1,1 @@
+w e i s i i g a k o o s a ts U s a r e pau z a N gy a k u d e y u r u sh i g a t a i t o i z o k u g a i k a r i n i f u r u e t a

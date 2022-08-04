@@ -1,0 +1,1 @@
+u u N pau b o k u r a w a v a sh e y a w i z a a r a t o pau g u r u u p u o k u m e r u k a n a

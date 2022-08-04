@@ -1,0 +1,1 @@
+t a m a sh i i t o w a n a n i k a n o k a i sh a k u o pau d a my a n o b i cl ch i w a z u cl t o k a N g a e t e m a s U

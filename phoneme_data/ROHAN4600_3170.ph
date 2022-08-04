@@ -1,0 +1,1 @@
+m u r u k a r u k u u w a s u j i g a n e i r i n o b a k U t o d e pau i k a s a m a m o u t a g a w a r e r u f u h a i n o j a N k i i d a

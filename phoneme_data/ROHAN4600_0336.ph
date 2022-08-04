@@ -1,0 +1,1 @@
+p a s U k u i i n i w a pau h a r i g a n e o g u ny a g u ny a m a g e r u

@@ -1,0 +1,1 @@
+y a n u sh i w a gy o cl t o m e o m i h i r a k i pau h i m o r o g i h o sh u u sh I h a j i m e m a sh I t a

@@ -1,0 +1,1 @@
+k u r a b u k a r a h a n a g a t a n o t o r u k u a a t o g a k a k e t a k o t o d e pau sh o o r i ts u g a s a g a r i pau f a N m o h e cl t e m a s U

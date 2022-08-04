@@ -1,0 +1,1 @@
+sh e r u t a a n o n a k a w a pau a b i ky o o k a N d e sh I t a

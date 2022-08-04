@@ -1,0 +1,1 @@
+d u ts i a k u n o j i cl k e N d e pau r o k u by o o g o t o n i m a b a t a k I s u r u

@@ -1,0 +1,1 @@
+ty a r u s a N n o j o g e N n o o k a g e d e pau u k a i b u ch o o w a b u j i k a e cl t e k i t a

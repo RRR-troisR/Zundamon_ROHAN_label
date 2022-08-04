@@ -1,0 +1,1 @@
+t a m a n e g i t o r a d i cl sh u w a pau a i sh o o b a ts u g u N d e s U

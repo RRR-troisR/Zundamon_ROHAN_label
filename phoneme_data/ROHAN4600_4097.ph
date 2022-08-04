@@ -1,0 +1,1 @@
+g e N j i b o t a r u w a pau f o t o u r i s u y o r i s U k u n a i sh u r u i d a s o o d e s U

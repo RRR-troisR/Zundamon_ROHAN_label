@@ -1,0 +1,1 @@
+g e z i i r a n o o p e r a h a u s u d e pau p a r a p a r a d e m o o d o r i m a sh o

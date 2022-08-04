@@ -1,0 +1,1 @@
+p u r a m o d e r u a i k o o k a pau sh u gy o k u n o k o r e k U sh o N d e s U k a r a

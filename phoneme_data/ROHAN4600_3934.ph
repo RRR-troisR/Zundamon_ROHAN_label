@@ -1,0 +1,1 @@
+j u N n a t o w a pau ky a b e ts U t o a N ch o b i n o s U p a g e cl t i o t a b e t e w a k a r e t a

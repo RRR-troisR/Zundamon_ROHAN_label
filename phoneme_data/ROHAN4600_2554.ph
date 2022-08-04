@@ -1,0 +1,1 @@
+n a N b a a s e b u N t o sh I t e pau by a k o b a o k u w a e r u

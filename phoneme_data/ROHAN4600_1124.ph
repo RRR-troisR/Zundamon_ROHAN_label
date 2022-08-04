@@ -1,0 +1,1 @@
+gy a cl ky o o n i m i e r u g a g o b u g o b u d e pau a n o sh o o k o g a a r e b a h i cl k u r i k a e r u z o

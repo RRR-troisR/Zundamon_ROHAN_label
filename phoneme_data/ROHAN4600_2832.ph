@@ -1,0 +1,1 @@
+d o N ts u m a r i n o k U ky o o d a cl t a g a pau n e dy a r u k a n o g o ny u u ry o k u g a k i cl k a k e d e pau k o o my o o g a m i e m a sh I t a

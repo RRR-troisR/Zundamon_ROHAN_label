@@ -1,0 +1,1 @@
+s o r e j a pau i k a r i k u r u u r a s u b o s u n i pau h a j a n o ts u r u g i d e k o N sh i N n o i ch i g e k i o m i m a cl t e y a r i n a s a i

@@ -1,0 +1,1 @@
+f u y u cl s e N n o b i j e n i pau ch e cl k a a d e y a b u r e m a sh I t a

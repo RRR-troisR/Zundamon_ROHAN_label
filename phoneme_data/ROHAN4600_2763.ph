@@ -1,0 +1,1 @@
+e N j o o sh I t a ky u hy o N g a pau sh u y a k U k a r a o r o s a r e t a z o

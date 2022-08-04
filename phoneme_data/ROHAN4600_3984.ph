@@ -1,0 +1,1 @@
+f o o k u n a a w a pau m o y o r i n o k o o b a N n i k a k e k o m i pau t a s U k e o m o t o m e t a

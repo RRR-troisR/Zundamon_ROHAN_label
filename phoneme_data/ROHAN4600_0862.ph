@@ -1,0 +1,1 @@
+p a p u a ny u u g i n i a d e i ch i b a N t a k a i t a k e w a pau b i cl k u r i s u r u h o d o k i r e e d e s U

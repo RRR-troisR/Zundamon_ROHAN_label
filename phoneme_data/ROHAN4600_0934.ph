@@ -1,0 +1,1 @@
+sh o cl p a n a k a r a pau n i g a by a k u d o o o s u s u m e b a pau m a d o w a z u s u m u n o d a g a n a

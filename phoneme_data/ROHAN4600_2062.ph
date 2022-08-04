@@ -1,0 +1,1 @@
+s a f a r i p a a k u o j u u j i n i sh i m e m a s U

@@ -1,0 +1,1 @@
+s u g u r e t a k o u y a w a pau a d e y a k a n a s o m e m o n o o pau j o s e f u n i u r i m a sh I t a

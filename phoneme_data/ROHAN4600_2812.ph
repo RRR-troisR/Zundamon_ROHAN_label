@@ -1,0 +1,1 @@
+g u r a f i k a r u y u u z a i N t a f e e s u d e pau f e r e cl t o n o sh i cl p o o ts U k a m u g e e m u o k a i h a ts u sh I t e m i m a sh I t a

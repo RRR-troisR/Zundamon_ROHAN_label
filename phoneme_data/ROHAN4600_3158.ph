@@ -1,0 +1,1 @@
+f u d a N k a r a k a t a y a b u r i n a f e r u d o o s i i d a g a pau y o s o o o k o e t a r i e k i o m o t a r a s U k o t o m o a r u

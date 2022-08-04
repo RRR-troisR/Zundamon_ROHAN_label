@@ -1,0 +1,1 @@
+dy u r u k e m u n o hy o o j o o g a k u m o r u n o o pau d o b a sh i w a m i n o g a s a n a k a cl t a

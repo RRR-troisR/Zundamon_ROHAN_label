@@ -1,0 +1,1 @@
+g e b o k u g a p i b e r o o n e n i t a i z a i sh I t e r u k a r a pau n u g a t i i n u d e m o y a cl t e k u r e

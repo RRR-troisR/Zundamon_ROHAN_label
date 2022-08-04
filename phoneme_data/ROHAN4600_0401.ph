@@ -1,0 +1,1 @@
+by a w e k u w a k a w a s e o y o m i k i r i pau t o r e e d o d e o o g a n e m o ch i n i n a cl t a t o s a

@@ -1,0 +1,1 @@
+k u i i N t o y o b a r e r u sh i m a m o y o o n o n o r a n e k o w a pau m e ts U k i g a s u r u d o k u d o o m o o d a

@@ -1,0 +1,1 @@
+sh a o r a N a n i k i g a i z u m i ch u u o o n i i t e k u r e t e pau ch o o d o y o k a cl t a

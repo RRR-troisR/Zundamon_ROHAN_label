@@ -1,0 +1,1 @@
+n e k u r a n o r e e v e N sh o r u d o w a pau o n a j i sh o z o k u n o ky a p I ky a p i sh I t a p a r i p i gy a r u n i a k o g a r e r u

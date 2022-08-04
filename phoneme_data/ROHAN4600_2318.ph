@@ -1,0 +1,1 @@
+b u r o N w i N w a b i n e ts u d e y a s u m u

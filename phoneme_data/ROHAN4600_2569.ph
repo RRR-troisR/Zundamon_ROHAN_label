@@ -1,0 +1,1 @@
+py e t o sh a k u n i k o o dy u r o i n o p a N ts u o k a u

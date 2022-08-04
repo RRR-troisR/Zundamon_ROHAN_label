@@ -1,0 +1,1 @@
+r e b a a o t e m a e n i k a t a m u k e r u t o t a i m u k a p U s e r u g a h i r a k i pau g u r o o t e v o o r u n o r a k u g a k i g a d e t e k i t a

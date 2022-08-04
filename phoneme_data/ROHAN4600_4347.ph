@@ -1,0 +1,1 @@
+g u i i d o pau gy o o s e k i g a t e e m e e sh I t e r u k e d o n a n i k a a cl t a n o k a i

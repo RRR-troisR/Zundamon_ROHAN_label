@@ -1,0 +1,1 @@
+g u o r u n o k a g e k i n a p o py u r i z u m u n i w a pau hy o o k a g a m a cl p u t a ts u n i w a k a r e t a

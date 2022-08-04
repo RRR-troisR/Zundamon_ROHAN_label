@@ -1,0 +1,1 @@
+b u k a b u k a n o f U k u d e y a m a n o b o r i n a N t e pau ky o o k i n o s a t a d a z o

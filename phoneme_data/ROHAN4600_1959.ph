@@ -1,0 +1,1 @@
+y u g u o N n a r a pau m a u p I t i d e n o sh i cl p a i o h a N s e e sh i pau f u cl k a ts u sh I t a z e

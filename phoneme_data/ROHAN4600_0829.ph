@@ -1,0 +1,1 @@
+b a k U f u k a r a ry o o sh o o o e r u t o w a pau d a i my o o n i h e N k a g a sh o o j i t a n o d e sh o o

@@ -1,0 +1,1 @@
+hy u p e r u py u r o N k i N k a o n u s u N d a ts u m i d e pau p i sh a p I sh a k o r a sh i m e t e k i t a

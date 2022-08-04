@@ -1,0 +1,1 @@
+v i j a n u e b a w a pau k o w a k u t e k i n a k o t o b a d e m a d o w a s U k a r a pau a u n a r a k i o ts U k e n a y o

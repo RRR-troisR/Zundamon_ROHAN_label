@@ -1,0 +1,1 @@
+k o n o k e sh i g o m u g a pau z a cl k a y a pau n a r a b i n i w e b u sh o cl p u d e m o sh i n a g i r e

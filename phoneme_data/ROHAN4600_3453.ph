@@ -1,0 +1,1 @@
+j a d u g o d a d e pau g o o r u d o r a cl sh u g a o k i r u n a d o pau m e d a ch I t a g a r i n a h e r u ts o o k u n o b o o g e N d e s U y o

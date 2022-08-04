@@ -1,0 +1,1 @@
+p u ry u d o n i k o f u w a pau k U s a cl t a v a cl f e r u o k u cl t a

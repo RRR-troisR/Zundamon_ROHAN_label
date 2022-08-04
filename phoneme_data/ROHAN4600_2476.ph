@@ -1,0 +1,1 @@
+z u by a d a u r i n o sh i cl k i w a pau n u r i g a h a g e t e k i t e m a s U

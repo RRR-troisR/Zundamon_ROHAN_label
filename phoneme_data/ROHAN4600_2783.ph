@@ -1,0 +1,1 @@
+o o b o w a f U t a ts u n o p u r o j e k U t o d e pau s a i t a k u w a h I t o ts u d a

@@ -1,0 +1,1 @@
+b i r e e n a k o r o m o o k i t a t e N ny o g a pau h a m a b e n i t a o r e t e i m a sh I t a

@@ -1,0 +1,1 @@
+py e e r u n o i e n o d o z o o n o t o b i r a w a pau k a t a k U t o z a s a r e t e i t a

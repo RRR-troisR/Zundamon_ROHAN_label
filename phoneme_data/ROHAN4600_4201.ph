@@ -1,0 +1,1 @@
+a k u i r i u s u w a ry o o r i n i N d e pau j o o z u n i n i k u o s a b a k i m a s U

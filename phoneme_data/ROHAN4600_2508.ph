@@ -1,0 +1,1 @@
+k o o g a i n o t o ch i o pau j a k o m a cl ts i g a u r i d a s u

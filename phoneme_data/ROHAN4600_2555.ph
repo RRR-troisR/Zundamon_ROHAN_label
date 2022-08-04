@@ -1,0 +1,1 @@
+hy o k u ch e n i n e b u m i o m a r u n a g e sh I t a

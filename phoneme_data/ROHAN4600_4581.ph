@@ -1,0 +1,1 @@
+r o i y a r i t i n o sh I h a r a i k a r a w a pau m e o s o m u k e t a i

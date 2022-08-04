@@ -1,0 +1,1 @@
+h e b i w a e N g i m o n o d a g a pau g u i hy o N k a r a m i r e b a pau d a i j a n i k o r o s a r e k a k e t a t o r a u m a n o y o b i m i z u d e s U

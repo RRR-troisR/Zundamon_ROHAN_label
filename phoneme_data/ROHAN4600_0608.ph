@@ -1,0 +1,1 @@
+t a k e u m a w a pau k a ts U t e k a z o k u d e a s o b u pau h I t o t o k i n o o m o ch a d e sh I t a

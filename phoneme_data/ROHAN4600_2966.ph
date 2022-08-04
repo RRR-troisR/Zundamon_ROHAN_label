@@ -1,0 +1,1 @@
+sh I t e N n o o t o i e b a pau a r e cl ts o pau m a ny a a n i pau b u t o r a g e e ny o t o pau gy a r e cl t o d e k i m a r i d a n a

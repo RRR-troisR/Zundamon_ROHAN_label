@@ -1,0 +1,1 @@
+p e r a g i a w a pau sh i sh a p a N m a n i n o b o r u t a m e pau ny u u n e N n i s o n a e r u

@@ -1,0 +1,1 @@
+k a m i g a t a n i k o d a w a r u k a r e w a pau t o o h i y o o sh e e b a a d e s e e h a ts U s u r u s o o d a

@@ -1,0 +1,1 @@
+ny u u i N sh I t e k i t a k a N j a w a pau t e n o ts U k e r a r e n a i hy o o k i N m o n o d a cl t a

@@ -1,0 +1,1 @@
+k a N k o k u g o n o pau ty o n o h a ts u o N g a n i g a t e n a k o t o o h a j i r a cl t e i m a s U

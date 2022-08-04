@@ -1,0 +1,1 @@
+a m a cl ty a g a pau ch u n i j i a d e b a k a N s u o e N j o i s u r u

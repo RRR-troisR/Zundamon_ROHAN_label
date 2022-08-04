@@ -1,0 +1,1 @@
+t u r i b i u s u g a u ts U k u r o k I k a t a n a w a pau d o r e m o sh i cl k o k u n i f U k a m i g a a r u

@@ -1,0 +1,1 @@
+k o n o sh i g o t o n i t a z u s a w a r u n a r a pau p a p a r a cl ch i o s a k e t e b u r a d e y o r o sh I k u

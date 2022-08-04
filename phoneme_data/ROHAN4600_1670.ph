@@ -1,0 +1,1 @@
+n a k I ts u m a o k o u py a n i cl ch i n i pau a i sh u u g a t a d a y o cl t e m i e m a s U

@@ -1,0 +1,1 @@
+p e r u ch e s a N pau sh i cl t o j a n a k u pau j i ts u ry o k u o t a k a m e t e m i k a e sh i n a s a i

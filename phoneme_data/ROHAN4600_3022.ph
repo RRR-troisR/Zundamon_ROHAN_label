@@ -1,0 +1,1 @@
+ch e gy o N w a n a n i g o t o n i m o k i N b e N d e a r u g a pau s a cl ky o k u d a k e w a n a z e k a h e N by o o sh i n i k o d a w a r i m a s U

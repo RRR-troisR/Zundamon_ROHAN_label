@@ -1,0 +1,1 @@
+a i s a ts u n i k a e t e pau b i e r i g a e g a i t a pau dy o dy o n o sh o o z o o g a o o k u r u

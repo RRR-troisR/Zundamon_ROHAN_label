@@ -1,0 +1,1 @@
+sh o o N w a e n o k u g o o h a n a s e m a s U g a pau t e N sh I t o k a i w a sh I t a k o t o w a a r i m a s e N

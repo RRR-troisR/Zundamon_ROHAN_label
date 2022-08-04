@@ -1,0 +1,1 @@
+k a r i ky u r a m u n o k o t o d e a r i y a j u o t a z u n e t a g a pau f u z a i d e sh I t a

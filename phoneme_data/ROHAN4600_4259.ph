@@ -1,0 +1,1 @@
+r a N g u u w a pau t a i k a o e r u t o k u r a i a N t o o u r a g i r i m a sh I t a

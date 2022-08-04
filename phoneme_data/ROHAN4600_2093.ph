@@ -1,0 +1,1 @@
+g u i y a N k u u r u d e pau b u cl ts i t o s u w a cl t e m a sh I t a

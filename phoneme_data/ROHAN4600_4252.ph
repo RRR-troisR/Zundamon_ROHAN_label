@@ -1,0 +1,1 @@
+sh e N y a N w a t a k a r a o h a cl k e N sh i pau b o o d a i n a t o m i o e m a sh I t a

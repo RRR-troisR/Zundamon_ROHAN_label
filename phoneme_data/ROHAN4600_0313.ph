@@ -1,0 +1,1 @@
+h a r a cl p a d e pau g u a d a n i i n o t o g o r o n e sh i g u m i o k a m u

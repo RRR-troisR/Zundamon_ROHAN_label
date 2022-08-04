@@ -1,0 +1,1 @@
+ky o o k a i d e i n o r u k u a r u t i i n a n i pau w a t a g a sh i o o k u r i m a s U

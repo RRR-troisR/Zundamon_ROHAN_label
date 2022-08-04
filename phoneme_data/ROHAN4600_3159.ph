@@ -1,0 +1,1 @@
+r o k u g a ts u n o s e N ky o d e pau gy o N w o N w a r a i b a r u o sh i r i m e n i sh u u b o o o u k e pau ch i g a t a g i r u

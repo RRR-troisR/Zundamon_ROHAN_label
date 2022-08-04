@@ -1,0 +1,1 @@
+ry a z a a n o w a w a pau k o k u r e N k a m e e k o k u n i k a N s u r u pau t o o k e e d e e t a o s e e s a s u r u gy o o m u n i t a z u s a w a r u

@@ -1,0 +1,1 @@
+t o cl py o o sh i m o n a i k o t o d a g a pau k a n o o s e e g a n a i w a k e d e w a n a i

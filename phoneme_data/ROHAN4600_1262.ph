@@ -1,0 +1,1 @@
+b a i hy e N b e r u g a a g a sh u s u i t o n a r i pau sh o o r i e m i ch i b i k u d e sh o o n e

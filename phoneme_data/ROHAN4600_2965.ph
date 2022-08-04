@@ -1,0 +1,1 @@
+b u r a cl d o f o o d o n o b a cl t e k i n i w a s a N p i a r u g a pau o r e w a sh e b a n o k e ts u i o s o N ch o o s u r u

@@ -1,0 +1,1 @@
+t a v u r o v u w a j a w o r u o t a b u r a k a sh i pau p u r e h a b u k o y a d e y u N b o o u r i m a sh I t a

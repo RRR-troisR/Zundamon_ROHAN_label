@@ -1,0 +1,1 @@
+t a r o o k u N w a pau s e N b u N s i i b i i n o a i d a o u g o k i m a w a r u m o n o t o s u r u

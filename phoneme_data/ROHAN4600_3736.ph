@@ -1,0 +1,1 @@
+a ry a ry a pau h i b i y a n o my e r o N g a pau j a m u n o n a k a d e f u ny a f u ny a n i n a cl ch a cl t e r u

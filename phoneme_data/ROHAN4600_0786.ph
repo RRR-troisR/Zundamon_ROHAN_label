@@ -1,0 +1,1 @@
+b e cl ts i i w a pau d o k o n i d e m o r i cl p a n a h a sh i o k a k e r u k o t o g a d e k i r u

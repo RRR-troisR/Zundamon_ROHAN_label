@@ -1,0 +1,1 @@
+k i r u hy e w a ry o o d o o k a k u d a i sh i pau ry u u s e e o k i w a m e m a sh I t a

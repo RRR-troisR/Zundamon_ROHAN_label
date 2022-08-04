@@ -1,0 +1,1 @@
+y u k i g u n i s o d a ch i n o dy o o m i N w a pau s U k i i y a s u n o b o d e k o r o b a z u pau j o o z u n i s u b e r u k o t o g a d e k i r u

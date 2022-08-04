@@ -1,0 +1,1 @@
+k o b a ry o f u g a k o o h i o o m i k a k e sh I t a

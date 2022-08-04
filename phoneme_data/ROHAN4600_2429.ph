@@ -1,0 +1,1 @@
+p a b u ry u ch e N k o w a g a pau g o b o o o k o m a k a k U k i z a m i m a s U

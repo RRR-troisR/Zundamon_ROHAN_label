@@ -1,0 +1,1 @@
+ts u y u d e j i m e j i m e sh I t a h i g a ts u z u k U t o pau z a cl k i N g a z o o sh o k U s u r u k o t o o pau f i n i s i i w a sh i r i m a s e N

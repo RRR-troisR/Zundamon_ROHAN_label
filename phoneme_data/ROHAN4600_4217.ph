@@ -1,0 +1,1 @@
+o r e e o s a r e t a v i i ch a z i w a pau f U k a b u k a t o o j i g i o sh i m a sh I t a

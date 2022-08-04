@@ -1,0 +1,1 @@
+k u n o o hy e g a ry a k U s o o pau s u n a w a ch I k a j u a r u w e a d e pau k a k U ch o o n o t a k a i b a N k e cl t o n i k i t a

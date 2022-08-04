@@ -1,0 +1,1 @@
+f e t o h i y e n o k o t o w a pau b o o ky a k U sh i m a sh I t a

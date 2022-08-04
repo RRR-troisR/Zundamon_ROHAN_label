@@ -1,0 +1,1 @@
+g u i r i m u n o k o m a k u w a d a i j o o b u

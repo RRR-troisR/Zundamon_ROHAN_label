@@ -1,0 +1,1 @@
+b a i sh e N f e r u t o d e h a b a y o s e s a r e t a

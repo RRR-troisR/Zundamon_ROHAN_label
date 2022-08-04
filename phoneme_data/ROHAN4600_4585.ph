@@ -1,0 +1,1 @@
+ky o o e e d a N sh i n i hy a k u m e e t o r u j i y u u g a t a d e pau p e r u u d a i hy o o g a j i k o b e s U t o o k i r o k u

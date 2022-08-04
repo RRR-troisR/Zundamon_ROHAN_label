@@ -1,0 +1,1 @@
+z o k u j i N g a ky u u ky u u sh a d e h a k o b a r e t a

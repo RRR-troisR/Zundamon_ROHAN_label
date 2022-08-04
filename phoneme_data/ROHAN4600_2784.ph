@@ -1,0 +1,1 @@
+f a r a ry o N n o i ch i w a pau h a a k u z u m i d a

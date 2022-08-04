@@ -1,0 +1,1 @@
+g u o ch e N w a p i r a f u o k o k e n i s a r e pau p i i n a cl ts u n o m i ry o k u o k a t a r a r e t a

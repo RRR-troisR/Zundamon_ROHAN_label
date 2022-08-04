@@ -1,0 +1,1 @@
+b a N sh o n a i y o o w a pau p a dy u u k a n o r i cl ch i d e s U

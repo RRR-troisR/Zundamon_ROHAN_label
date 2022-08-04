@@ -1,0 +1,1 @@
+m o j i n i k a k i o k o s u j u u s e k i n o n a k a pau d e y a a k a dy a a k a n o sh I k i b e ts u d e k o m a r u

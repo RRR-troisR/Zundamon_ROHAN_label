@@ -1,0 +1,1 @@
+k a k i n i w a h a n a b i y a y u k a t a n a d o n o f u u b u ts u sh i g a a r i pau sh u w i N g a a m o t a n o sh i m i n i sh I t e m a s U

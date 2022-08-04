@@ -1,0 +1,1 @@
+gy a cl d o n o ry o o b u N n a r a pau k U ch i n a d o h a s a m e m a s e n u

@@ -1,0 +1,1 @@
+f u z e e a r u k e sh I k i o m i n a g a r a t a b e r u pau p a N p u d i N g u w a s a i k o o d a

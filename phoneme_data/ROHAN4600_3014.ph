@@ -1,0 +1,1 @@
+ts a N d i w a pau my o N f a n i i cl sh U k u i cl p a N n o o N g i g a a r i pau p i N ch i n o t o k i n i w a s u g u k a k e ts U k e m a s U

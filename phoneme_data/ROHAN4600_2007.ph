@@ -1,0 +1,1 @@
+py e t o r a sh a k u w a pau ry u u n e N m a g i w a n a n o n e

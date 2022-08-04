@@ -1,0 +1,1 @@
+d o o s e s e e s a k u w a pau h e t u a r a n i n a r a u d a k e d a y o

@@ -1,0 +1,1 @@
+t e N p o e n o m i r u k U t i i ny u u k a k i b o o g a m i n o r u k o t o pau o i n o r i m o o sh i a g e m a s U

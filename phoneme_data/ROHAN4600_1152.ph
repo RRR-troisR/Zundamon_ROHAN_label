@@ -1,0 +1,1 @@
+k U t u r u f u w a pau ts u a t u g u a n a d o pau k a k u u n o sh i N w a t a i k e e o j u r i ts u sh I t a N d a z e

@@ -1,0 +1,1 @@
+b i j a k u d a g a t o r a e t a n o w a pau p a s U k u i i n i k a r a n o m e cl s e e j i d e s U

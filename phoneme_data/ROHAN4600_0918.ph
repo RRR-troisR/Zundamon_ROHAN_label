@@ -1,0 +1,1 @@
+ny e e N g a t o o g o o m a n a b u t a m e pau n e m u r i n a g a r a d e m o k I k i ts u z u k e r u

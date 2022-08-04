@@ -1,0 +1,1 @@
+ch o o ky o d a i n a s a k a n a g a ts u r e t a t o pau r a b e r u n a r i b u w a o m o w a z u gy o t a k u o t o r i m a sh I t a

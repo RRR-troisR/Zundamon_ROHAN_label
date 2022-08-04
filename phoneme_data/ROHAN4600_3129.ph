@@ -1,0 +1,1 @@
+t e m a h i m a k a k e t e ts U k u cl t a f i i r u my o r u k u o s a N k o i r e t a h a k o g a pau s a k a m i ch i o k o r o g a r i o ch i t a

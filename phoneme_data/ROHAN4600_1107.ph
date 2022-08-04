@@ -1,0 +1,1 @@
+t i sh U ky e v i cl ch i w a pau o o s a k a n o d o o t o N b o r i d e pau b u t a m a N o t a b e t a

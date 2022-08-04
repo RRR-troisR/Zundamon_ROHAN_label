@@ -1,0 +1,1 @@
+ky o o w a t a n o sh i k U t e pau j i k a N g a m a t a t a k u m a n i s u g i t e sh i m a i m a sh I t a

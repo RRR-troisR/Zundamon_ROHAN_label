@@ -1,0 +1,1 @@
+b o k u w a t i m o sh i i o o sh i m a sh I t a g a pau i cl sh u u s a r e m a sh I t a k a

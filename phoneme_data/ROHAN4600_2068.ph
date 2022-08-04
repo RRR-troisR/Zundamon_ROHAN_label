@@ -1,0 +1,1 @@
+ry u cl ts e r u s a m a pau k a N g a e g a k a t a y o cl t e m a s U

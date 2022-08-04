@@ -1,0 +1,1 @@
+sh i i r u n o h o o gy o k u g a pau y u d e t a p a p u r i k a t o p u r a m u d e ch i y u s u r u t o ts U t a e t a

@@ -1,0 +1,1 @@
+ty u r i t a f o o t o n o o m a N d e pau sh e N ty u r u k u n i s a k a r a u n o w a pau j i b a k u m o n o d a z o

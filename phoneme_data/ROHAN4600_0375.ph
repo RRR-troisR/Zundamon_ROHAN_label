@@ -1,0 +1,1 @@
+s a t e pau ky o o i ch i g a m a n e j i m e N t o sh I t a o p e r a g a pau b a r u d u cl j a d e o h i r o m e d a

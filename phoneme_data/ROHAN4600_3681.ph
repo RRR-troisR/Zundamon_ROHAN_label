@@ -1,0 +1,1 @@
+w a N w e i sh a m e N o pau b o r o b o r o n o h e y a g i d e b u cl ch i g i r i g o o r u d e sh I t a

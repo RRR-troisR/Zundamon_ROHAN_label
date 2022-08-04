@@ -1,0 +1,1 @@
+b a ry a d o r i i d o w a pau j i n i m o k a k a w a r a z u pau b e N z a d e d o k U sh o sh i m a s U

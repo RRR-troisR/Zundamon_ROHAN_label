@@ -1,0 +1,1 @@
+sh o k i b a r a i n i b i i r u f e s u e i k u k e d o pau h e k U sh a a m o s a s o u k a

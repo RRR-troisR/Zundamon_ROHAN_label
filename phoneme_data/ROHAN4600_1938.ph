@@ -1,0 +1,1 @@
+sh u y a k u n o k o cl p a m u sh a g a pau y u k i z u k i y o n i y u u k i o d a sh i o n o r e o k o b u s u r u

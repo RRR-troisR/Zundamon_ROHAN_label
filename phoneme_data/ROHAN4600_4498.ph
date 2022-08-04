@@ -1,0 +1,1 @@
+g o g o m a d e n i w a pau s a N by a k u n i N o k o e r u m i t o o sh i d e s U

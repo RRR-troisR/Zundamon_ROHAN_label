@@ -1,0 +1,1 @@
+b e r u r i N g u e r u w a pau sh u u i t o j o o g e i cl sh i N n i pau f o o t o w e i N n o k i k i o n o r i k o e m a sh I t a

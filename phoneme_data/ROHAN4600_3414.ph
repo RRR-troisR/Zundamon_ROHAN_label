@@ -1,0 +1,1 @@
+ch o ch I k u sh I t a o k a n e d e pau hy u u r e cl t o p a cl k a a d o n o j i i p i i y u u o s o n a e t a p i i sh i i o k a i m a s U

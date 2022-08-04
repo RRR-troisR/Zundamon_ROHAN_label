@@ -1,0 +1,1 @@
+p u r a N k U t o N n i ts u i t e w a pau s a z u o s a N sh o o sh I t e k u d a s a i

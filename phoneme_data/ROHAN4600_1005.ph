@@ -1,0 +1,1 @@
+w a t a k U sh i pau py u u t o f u k U k a z e n o o t o n i pau n a z e k a k e N o k a N g a a r i m a s U n o

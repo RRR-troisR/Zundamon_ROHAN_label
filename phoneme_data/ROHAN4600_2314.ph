@@ -1,0 +1,1 @@
+ty u b e r u k u n o ky a r i a o k a N k e ts u n i n o b e y o

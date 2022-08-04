@@ -1,0 +1,1 @@
+p o m u py u u r e n o g a z o o w a p i ny o cl t i n o ch o s a k u b u ts u d a g a pau f e a y u u s u d e sh i y o o d e k i r u

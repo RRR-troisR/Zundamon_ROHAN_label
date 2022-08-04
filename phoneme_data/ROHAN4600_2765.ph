@@ -1,0 +1,1 @@
+v e r u t u r u s i i d e pau sh i sh a g o ny u u o o sh i e r u

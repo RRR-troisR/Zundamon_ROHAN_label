@@ -1,0 +1,1 @@
+sh i g o t o g a ch u u t o h a N p a d a t o pau j o o sh i n i sh o k u m u t a i m a N t o o m o w a r e m a s U y o

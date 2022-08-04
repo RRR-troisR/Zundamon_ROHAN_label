@@ -1,0 +1,1 @@
+k a j i my e sh u sh i w a pau ry o k a N o t e ts u d a u n a k a pau ch o s u i ch i m o s e N j o o sh i m a s U

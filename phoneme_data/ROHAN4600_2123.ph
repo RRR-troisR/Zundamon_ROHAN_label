@@ -1,0 +1,1 @@
+w o r o d u u g u u o o m o i d a s U t o pau m u n e g a k u r u sh i i

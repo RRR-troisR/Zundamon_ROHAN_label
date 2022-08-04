@@ -1,0 +1,1 @@
+t u d u u r u w a pau r a N k i N g u g a k a i n o gy a r u m a t o n o ch o o s e N o s a k e pau k o sh i n u k e t o b a cl sh i N g u s a r e m a sh I t a

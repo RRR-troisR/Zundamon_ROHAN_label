@@ -1,0 +1,1 @@
+h a ch a t u r i a N w a pau k u o o k u n o ky o o k a sh o o pau d e s U k u n o u e n i n o s e m a sh I t a

@@ -1,0 +1,1 @@
+k u u a r e e r o w a pau k u r e j i cl t o k a a d o n o b u N k a ts u b a r a i o k o n o m i m a s U

@@ -1,0 +1,1 @@
+r e g a sh i i g a i y a cl t e w a k e j a n a i n o d e s U

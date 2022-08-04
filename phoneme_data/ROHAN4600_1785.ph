@@ -1,0 +1,1 @@
+ch e z a r e n i t o cl t e pau f U k u sh o k u z a cl k a n o sh o cl p i N g u w a pau sh u m i n a N d a r o

@@ -1,0 +1,1 @@
+s e cl p i y o r u w a pau k a k U t e e sh i N k o k u n i t e m a d o cl t a

@@ -1,0 +1,1 @@
+t e cl ky o o n o m o N g u o r u g o o pau h i b i sh i r a b e t e r u g a w a k a r a n u

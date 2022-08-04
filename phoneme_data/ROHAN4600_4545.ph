@@ -1,0 +1,1 @@
+sh i m e w a z a g a k i m a r u sh u N k a N o pau p a b u r i cl k u by u u i N g u d e k a N s e N sh I t e i t a

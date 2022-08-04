@@ -1,0 +1,1 @@
+py u u py u u t o k a z e o k i r u o t o g a n a r u n a k a pau f e r e i d u N n o k a N d a k a i k o e g a k a s U k a n i k I k o e m a s U n e

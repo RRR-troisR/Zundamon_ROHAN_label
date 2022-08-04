@@ -1,0 +1,1 @@
+j a p o n i k a g a k U sh u u ch o o n o hy o o sh i n i ts u i t e pau g i j i r o k u n i n o b o s e m a sh o o

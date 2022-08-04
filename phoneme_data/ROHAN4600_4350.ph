@@ -1,0 +1,1 @@
+p o r u z o i w a pau m i g o t o n a sh u w a N d e pau m i k a i k e ts u j i k e N o k a i k e ts u sh I t a

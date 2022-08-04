@@ -1,0 +1,1 @@
+k u e cl t o w a hy a k u m a N d o r u n o t a k a r a k u j i g a a t a r i pau u r a y a m u k i m o o k i n a i

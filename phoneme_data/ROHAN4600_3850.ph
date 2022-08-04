@@ -1,0 +1,1 @@
+t a m a k o w a pau w e i t o r e s u g a m o r i ts U k e t a pau g a p a o r a i s u o n a g a m e m a sh I t a

@@ -1,0 +1,1 @@
+d o o v e r u ny u w a pau j i N j u ts u n i t a k e t a k e ts u b u ts u d a

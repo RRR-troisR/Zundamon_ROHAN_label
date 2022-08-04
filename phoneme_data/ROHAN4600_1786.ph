@@ -1,0 +1,1 @@
+y u r u i t e N p o n o p o cl p u my u u j i cl k u o k I k i n a g a r a pau g u u o o g a m u

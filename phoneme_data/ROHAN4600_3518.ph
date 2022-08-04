@@ -1,0 +1,1 @@
+j e r u z i n i s u k i w a pau b e cl d o f o o d o sh a a d e pau w i N d o sh o cl p i N g u ch u u n o ts u m a o m i k a k e t a

@@ -1,0 +1,1 @@
+b i sh i ny o o w a s a m a pau w a t a sh i n i w a n i g a k a ch i s u g i pau t o i n o k o t a e o m o ch i e m a s e n u

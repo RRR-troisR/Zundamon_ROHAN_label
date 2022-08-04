@@ -1,0 +1,1 @@
+p i N k u n o t a b i n i j a g a a d o o r i n o sh a ts U t o w a pau k i b a ts u n a s e N s u d e s U

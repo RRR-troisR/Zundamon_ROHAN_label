@@ -1,0 +1,1 @@
+z i N ts e N d o r u f u n o k u b i g a pau h a r e t e m a s U n e

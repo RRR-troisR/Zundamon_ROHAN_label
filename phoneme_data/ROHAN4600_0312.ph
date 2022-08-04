@@ -1,0 +1,1 @@
+b e r o o z o w a r i k u t o u n o r e k I sh i o m a t o m e pau my e sh u k o g a by u u t I f u r u t o h o m e t a

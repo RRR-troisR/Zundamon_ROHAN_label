@@ -1,0 +1,1 @@
+k o o t e e e k i n o ry u u k o o o pau z e cl t a i n i k u i t o m e n e b a n a r a n a i

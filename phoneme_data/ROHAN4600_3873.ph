@@ -1,0 +1,1 @@
+h a j i m e t e hy a k u j u u b a N o sh I t a n o w a pau j e i d o g a k o k o n o ts u n o t o k i d e sh I t a

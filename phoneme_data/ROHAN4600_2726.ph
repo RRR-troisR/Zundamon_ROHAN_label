@@ -1,0 +1,1 @@
+ky u p u r a a d o n o n o o t e n a m i o pau h a i k e N sh I t a i

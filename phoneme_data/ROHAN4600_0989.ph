@@ -1,0 +1,1 @@
+k a g e n i k a k u r e t a g a pau h a n a t a b a n i b u b a r u d i a y a pau b e g o n i a g a m i e t a

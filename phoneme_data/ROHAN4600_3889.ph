@@ -1,0 +1,1 @@
+hy u u i cl t o n o k o t o g a w a s u r e r a r e n a i t o pau sh a r u r u w a n a g e k i m a sh I t a

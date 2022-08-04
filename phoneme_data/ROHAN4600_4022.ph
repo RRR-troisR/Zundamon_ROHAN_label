@@ -1,0 +1,1 @@
+k u a k U s a N n o h a n a sh I k a t a w a t e N k a r a N ts u i pau i k i i k I t o sh I t e i m a s U

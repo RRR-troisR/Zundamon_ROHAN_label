@@ -1,0 +1,1 @@
+a r u t I ty u u d o d a i b i N g u g a pau k a r e n o m e o i k i i k I t o s a s e m a s U

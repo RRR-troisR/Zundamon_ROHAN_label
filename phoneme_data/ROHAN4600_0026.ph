@@ -1,0 +1,1 @@
+f a b u r i i ts i w a m o t o g o e o j u N b i sh i pau p a p u r i k a n o s a i b a i o h a j i m e t a

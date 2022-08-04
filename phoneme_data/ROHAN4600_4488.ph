@@ -1,0 +1,1 @@
+s a k i k a t a g a s u i j o o k a pau ch e cl k u sh I t e k u d a s a i

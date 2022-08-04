@@ -1,0 +1,1 @@
+o o i t a d e pau p a a s o n a r u w o o t a a k u r a f U t o n o p a f o o m a N s u o pau m i g a k i a g e m a s U

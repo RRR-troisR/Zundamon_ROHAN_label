@@ -1,0 +1,1 @@
+v e n e ts i a a n o g a n e b o k e t e pau u cl k a r i h i m i ts u o sh a b e cl t a

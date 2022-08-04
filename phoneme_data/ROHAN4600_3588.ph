@@ -1,0 +1,1 @@
+b o i N s u u w a g e N g o d e k o t o n a r i pau n i h o N g o w a z e N b u d e i ts u ts u d a g a pau k a z u w a y u u r e ts u n i ch o cl k e ts U sh i n a i

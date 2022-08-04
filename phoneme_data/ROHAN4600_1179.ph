@@ -1,0 +1,1 @@
+k o k o o r i N ch o o s u r u b a sh o t o w a m i t o m e n u t o pau p o ry u k a r u p o s u w a y u z u r a n a k a cl t a

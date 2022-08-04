@@ -1,0 +1,1 @@
+w i r u hy o o w a pau m i ch i b a t a n i ts u b a o h a k i m a sh I t a

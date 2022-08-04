@@ -1,0 +1,1 @@
+b a a r u n o k e e t e e sh i m a i w a pau m i N n a y u n i i k u d e k I s a k u n a h I t o t a ch i d a

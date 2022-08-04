@@ -1,0 +1,1 @@
+t e N d o o sh I k a r a pau w a z a w a z a g i r i ch o k o o m o cl t e k i t e k u r e r u n o d e s U

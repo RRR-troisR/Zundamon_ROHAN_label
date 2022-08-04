@@ -1,0 +1,1 @@
+py a ts u a w a j i by o o g a a cl k a sh I k i t o k U t o n a r i pau my a k u m o y o w a y o w a sh i k u n a cl t e k i t a

@@ -1,0 +1,1 @@
+ny a o p e o sh o j i s u r u o t o k o g a pau k i n o o k a r a t o o s o o sh I t e i m a s U

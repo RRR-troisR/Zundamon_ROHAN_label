@@ -1,0 +1,1 @@
+a n a t a n o sh u g i w a w a k a cl t a n o d e pau m a z u n a N d i w o o s a N my a k u o n o b o r u k a k i m e m a sh o

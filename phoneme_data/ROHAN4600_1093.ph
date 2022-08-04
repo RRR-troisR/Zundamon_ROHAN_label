@@ -1,0 +1,1 @@
+t i b e e r i o t o k e ts u b e ts u sh I t e k a r a pau n a g a i s a i g e ts u g a t a ch i m a sh I t a

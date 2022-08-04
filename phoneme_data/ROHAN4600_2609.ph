@@ -1,0 +1,1 @@
+f i n e cl r i ch a N w a t a k a b i sh a n a n o n e

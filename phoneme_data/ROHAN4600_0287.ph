@@ -1,0 +1,1 @@
+g u o ry a N n o s a sh i g a n e d e pau a r a t a n a b u d o o o o k o s U t o

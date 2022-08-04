@@ -1,0 +1,1 @@
+k o s U ty o N k i w a pau sh o o r i n o k i n e N n i pau o k a sh i r a ts U k i n o t a i o t a b e m a sh I t a

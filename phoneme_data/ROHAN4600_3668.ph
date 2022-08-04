@@ -1,0 +1,1 @@
+ky a p I ky a p i gy a r u n o k a i sh a k u m o pau k o N j a k u d e w a ch i g a i g a m i e t e k i m a s U

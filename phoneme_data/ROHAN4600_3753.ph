@@ -1,0 +1,1 @@
+sh a sh i N n o sh U k u sh a k u o m i t e pau sh o o k I k a t o g a N ky u u o gy o r o gy o r o s a s e r u

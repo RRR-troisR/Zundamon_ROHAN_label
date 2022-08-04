@@ -1,0 +1,1 @@
+s o k o n o f i gy u a w a b o k u g a h a k o b u n o d e pau a cl ch i n o h a g u r u m a o t a n o m i m a s U

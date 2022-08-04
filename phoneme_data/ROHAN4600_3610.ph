@@ -1,0 +1,1 @@
+y a cl t o k o s a pau ch o k o r e e t o f o N dy u p a a t i i n o k I k a k u g a d e k i m a s U n e

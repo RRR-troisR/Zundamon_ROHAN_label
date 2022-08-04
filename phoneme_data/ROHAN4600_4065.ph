@@ -1,0 +1,1 @@
+my u N h e N n o d o o r o o u N t e N sh I t e pau s U t e k i n a m a ch i n a m i o t a n o sh i m i t a i d e s U

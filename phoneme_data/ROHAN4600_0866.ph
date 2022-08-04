@@ -1,0 +1,1 @@
+s a N k a k u ch u u o p u r e z e N t o s a r e t e m o pau a ts U k a i n i k o m a cl t e sh i m a i m a s U

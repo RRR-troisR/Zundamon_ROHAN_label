@@ -1,0 +1,1 @@
+g o b i y a a t o g a r o o p u w e i d e a b a r e pau j o o ky a k u g a p a n i cl k u n i n a cl t a

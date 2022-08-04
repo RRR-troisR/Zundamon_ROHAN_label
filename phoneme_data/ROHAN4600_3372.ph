@@ -1,0 +1,1 @@
+a b i ny o N w a pau h e r i k o p U t a a n o sh i my u r e e sh o N g e e m u d e pau k a g a y a k a sh i i s e N s e k i o n o k o sh I t a

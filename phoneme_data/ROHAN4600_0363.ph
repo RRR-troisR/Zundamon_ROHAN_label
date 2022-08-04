@@ -1,0 +1,1 @@
+z u b i g u ny e f u n o w a a r u d o r e k o o d o w a pau r e gy u r e e sh o N o b i my o o n i m i t a s a z u pau sh i cl k a k u d a r o o

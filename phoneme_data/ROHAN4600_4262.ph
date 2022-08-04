@@ -1,0 +1,1 @@
+n e r u ty a w a pau k a N b a sh i i k a o r i n o s U t e e k i o t a b e t e pau sh i a w a s e s o o d e sh I t a

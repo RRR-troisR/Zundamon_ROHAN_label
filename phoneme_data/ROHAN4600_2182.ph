@@ -1,0 +1,1 @@
+ts u a r i ts u i n o n i pau k o o k i n o m i d a r e w a n a i

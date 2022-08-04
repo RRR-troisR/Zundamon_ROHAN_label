@@ -1,0 +1,1 @@
+N N pau i e e r u d a i g a k u n i i k U k o t o o pau o y a n i y u r u sh I t e m o r a e r u k a n a

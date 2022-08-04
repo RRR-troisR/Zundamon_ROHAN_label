@@ -1,0 +1,1 @@
+k U sh i e my o N k i n i ch i t e e k o g a a r u k a pau o b o e t e n a i

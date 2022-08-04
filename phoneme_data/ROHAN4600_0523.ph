@@ -1,0 +1,1 @@
+b u ch o o g a ts i e k u n o y a k u y o k e o sh I t a g a pau sh o s e N w a y o ky o o n i s u g i n a i

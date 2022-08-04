@@ -1,0 +1,1 @@
+b e ts u n i m u k o g a h o sh i i w a k e j a n a i d e s U y o

@@ -1,0 +1,1 @@
+s u ch u u k u r i i g a pau g i o o r u gy e v i ch u n o m e o gy o o sh I sh i pau a i k o N t a k U t o d e n a n i k a u cl t a e t a m i t a i d e s U

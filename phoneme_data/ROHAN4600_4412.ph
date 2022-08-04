@@ -1,0 +1,1 @@
+k o N b u ch a n o r a N n i pau g u a b a ch a g a k a t e g o r a i z u s a r e t e i m a s U

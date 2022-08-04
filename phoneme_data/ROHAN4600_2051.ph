@@ -1,0 +1,1 @@
+g u r o o s u p u ry e d e pau t a ch i o m o ts U t o ts U k a m a r i m a s U

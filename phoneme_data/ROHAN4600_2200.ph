@@ -1,0 +1,1 @@
+a i z o m e n o w a f U k u g a pau p u r o f i i r u n i n o r u

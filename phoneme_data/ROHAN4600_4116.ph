@@ -1,0 +1,1 @@
+r e k I sh i n i k u w a sh i k u n a i n o d e pau b o r u g a g a w a d e k a cl s e N g a o k i t a k a w a sh i r a n a i

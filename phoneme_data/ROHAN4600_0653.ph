@@ -1,0 +1,1 @@
+gy u s U t a a b u t o ky o o e N sh i pau sh i g e k i t e k i n a t o k i o s u g o s e m a sh I t a k a

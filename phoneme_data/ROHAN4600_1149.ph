@@ -1,0 +1,1 @@
+n e ts u g a s a m e n a i n o d e pau f a a m a sh i i d e k U s u r i o k a u g a pau h o k a n i k a u m o n o w a a r u

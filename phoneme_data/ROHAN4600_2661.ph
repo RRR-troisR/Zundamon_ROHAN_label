@@ -1,0 +1,1 @@
+p e t o r u cl ts u i w a pau n a n a m e m u k a i n o sh a k o n i i m a s U

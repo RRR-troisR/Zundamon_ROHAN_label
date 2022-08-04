@@ -1,0 +1,1 @@
+z a i n a p u w a pau b a r u by u s u n o m e cl s e e j i n i ky o o g a k U sh i m a sh I t a

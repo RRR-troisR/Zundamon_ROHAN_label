@@ -1,0 +1,1 @@
+s i my o o N g a pau k u o o t i a a d e g o N gy o o s u r u

@@ -1,0 +1,1 @@
+p i n e h a s u w a k i b i sh i k U h a i ry o n i m o k a k e r u g a pau t o o ry o o n o k a r i s u m a d a

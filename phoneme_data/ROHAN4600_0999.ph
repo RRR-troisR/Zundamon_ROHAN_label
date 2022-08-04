@@ -1,0 +1,1 @@
+w e cl k U s u f o o d o d e n o u i z a N g a pau b u j i n i s u N d a t o m e e r u g a t o d o i t a

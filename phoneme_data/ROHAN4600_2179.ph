@@ -1,0 +1,1 @@
+sh u v e ts i N g e N n o pau ky u u m i N k o ky a k u g a n e r a i m e d a

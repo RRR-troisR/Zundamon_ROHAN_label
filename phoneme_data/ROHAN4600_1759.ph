@@ -1,0 +1,1 @@
+ty u s u f i y o o r u o k a k e n u k e t a k e d o pau m o k U t e k i ch i w a d o k o d a

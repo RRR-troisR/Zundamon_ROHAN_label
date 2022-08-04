@@ -1,0 +1,1 @@
+k o my u sh o o g a h I t o r i d e y o o h o o d e k i m a s u

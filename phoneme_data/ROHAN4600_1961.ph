@@ -1,0 +1,1 @@
+m i r i b o y e v i cl ch i y o pau a s u w a my o o ch o o k a r a pau t o r a a v e my u N d e n i sh u cl p a ts u d a z e

@@ -1,0 +1,1 @@
+s a s a z u k a k u N pau r i N k u u g a n e ts u o s a m a s U m a d e pau s o b a n i i t e y a cl t e k u r e n a i

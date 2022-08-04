@@ -1,0 +1,1 @@
+d e b a cl g u n o p o py u r a a n a y a r i k a t a w a pau d e b a cl g a a o ts U k a u k o t o d a

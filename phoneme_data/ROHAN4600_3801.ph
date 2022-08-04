@@ -1,0 +1,1 @@
+k a n a h e b i g a ry u u n i m i e t a n a d o pau sh i N sh o o b o o d a i m o i i t o k o r o d e s U

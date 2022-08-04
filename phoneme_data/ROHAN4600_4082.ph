@@ -1,0 +1,1 @@
+ch o o j i N t e k i n a m u sh a sh u gy o o d e s U g a pau ky u u k e e m o t a i s e ts u d e s U y o

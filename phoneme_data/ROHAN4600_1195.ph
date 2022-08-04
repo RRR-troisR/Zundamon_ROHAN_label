@@ -1,0 +1,1 @@
+p e n i y u e r u n i s o s o n o k a s a r e pau sh u cl p o N o k i m e t a n o w a s U h o ny u d a y o

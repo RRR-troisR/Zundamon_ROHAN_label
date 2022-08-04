@@ -1,0 +1,1 @@
+y a k a t a b u n e d e w e ts e r u g a p u r o p o o z u sh I t e pau k o t o w a r a r e t a r a sh i i w a

@@ -1,0 +1,1 @@
+d u u r u u z u w a s a m a z a m a n a d a N t a i n i z o k u sh i pau k I sh o o n o k a z u m o o o i

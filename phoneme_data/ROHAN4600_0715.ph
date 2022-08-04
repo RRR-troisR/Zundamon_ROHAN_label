@@ -1,0 +1,1 @@
+ty a a s a m a n i w a pau p a y u cl t e n a n o pau r i cl p a n a ky o k a g a i r u N d e s U y o

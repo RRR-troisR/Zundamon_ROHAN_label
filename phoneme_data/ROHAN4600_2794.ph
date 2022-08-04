@@ -1,0 +1,1 @@
+k u r e sh e N ts a g a ky a t a ts u d e pau h a a r u sh u r e v e ry u u o t o r u

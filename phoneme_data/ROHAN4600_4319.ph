@@ -1,0 +1,1 @@
+j e cl t o k o o s U t a a n o sh u u z e N n i w a pau m a d a m a d a j i k a N g a k a k a r i s o o d a n e

@@ -1,0 +1,1 @@
+e r i o t a t e t e sh a ts u o k i r u h I t o m u k a sh i m a e n o f a cl sh o N o pau r a d o f o o d o w a k o n o m i m a s U

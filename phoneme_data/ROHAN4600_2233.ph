@@ -1,0 +1,1 @@
+g e s U t o w a ts u g u k o o s a m a d e g o z a i m a s U k a

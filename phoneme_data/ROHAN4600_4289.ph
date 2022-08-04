@@ -1,0 +1,1 @@
+g u a d a n i i n o n o t e k I s e ts u n a sh i j i n i y o r i pau g i s e e sh a w a d e n a k a cl t a d e s U

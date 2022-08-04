@@ -1,0 +1,1 @@
+g u a n a f a t o w a pau k i s e ts u h a z u r e n o r i N u d e y u u u ts u n a k i b u N n i n a r u

@@ -1,0 +1,1 @@
+sh a s a i o k a u t o pau ky u v i ry e k a r a ch a cl t o g a a cl t a g a pau o s u s u m e s e N z o

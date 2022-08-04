@@ -1,0 +1,1 @@
+i m a w a v o k u ry u u z u d e p u r o dy u u s a a y a cl t e r u y o

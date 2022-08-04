@@ -1,0 +1,1 @@
+r i s a w a pau ry o k a k U sh a n a i n i t e sh i b a r a k u n a y a m i n u k i pau ch a p u ch e o t a n o m u

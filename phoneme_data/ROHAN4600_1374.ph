@@ -1,0 +1,1 @@
+n i sh I k i g o i w a m i ry o k u t e k i d a g a pau r a b u ny u n i s e w a o m a k a s e r u n o w a k i g a k a r i d a n a

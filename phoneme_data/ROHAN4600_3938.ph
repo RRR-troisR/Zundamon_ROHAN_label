@@ -1,0 +1,1 @@
+k u a N j a N sh i j a N d e t a b e a r u k i o s u r u y u m e o pau m u n e n i h i m e t e i r u

@@ -1,0 +1,1 @@
+k o t e y a e u m u d e pau sh u u u N g a s a k a e t e m a sh I t a

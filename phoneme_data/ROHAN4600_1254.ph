@@ -1,0 +1,1 @@
+p u r i m u n o k a n a k i r i g o e w a pau sh o m i N o k o o r i ts U k a s e m a sh I t a

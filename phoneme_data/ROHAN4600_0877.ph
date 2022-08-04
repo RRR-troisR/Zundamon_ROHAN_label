@@ -1,0 +1,1 @@
+p e t i n a i f u n o k i r e a j i w a pau s e e ry u u g a t a n a n i w a o y o b i m a s e n u

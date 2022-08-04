@@ -1,0 +1,1 @@
+hy u u u ts u n o u ts U k u sh i s a o k a k u k o t o n i sh I t a g a pau o m o cl t a y o o n i n a r i m a s e n u

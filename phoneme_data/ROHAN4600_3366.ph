@@ -1,0 +1,1 @@
+t a i f u u n i m i m a w a r e t a g a pau my o o g o n i ch i n i w a pau by a a n e m o ny u u r o sh e r u n i t a d o r i ts u k u d a r o o

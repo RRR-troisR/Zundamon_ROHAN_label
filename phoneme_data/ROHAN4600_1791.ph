@@ -1,0 +1,1 @@
+o j i g a w e r o n i k a n i h e sh i k o o k u w a s e pau k o r e g a b a ts u g u N n i u m a k a cl t a r a sh i i

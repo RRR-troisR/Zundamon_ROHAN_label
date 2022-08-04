@@ -1,0 +1,1 @@
+i b a r a k i n o i z a k a y a d e pau s a N j o b e e z e o n o m u

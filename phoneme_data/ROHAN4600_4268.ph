@@ -1,0 +1,1 @@
+k a my e n i s u k i w a pau ts U k i g a m i ch i r u t o o o k a m i o t o k o n i n a r i m a s U

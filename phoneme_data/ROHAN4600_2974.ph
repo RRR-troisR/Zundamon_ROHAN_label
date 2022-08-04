@@ -1,0 +1,1 @@
+p a ny e v o k a r a h i g a sh i e i k U t o s o k o n a sh i n u m a g a a r i pau t e s U ch u u g a n o m i k o m a r e k a k e t a

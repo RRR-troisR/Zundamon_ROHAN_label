@@ -1,0 +1,1 @@
+ch u r u g o g a n e g u r u sh i k a cl t a n o w a pau k a g o m a k u r a g a a w a n a k a cl t a k a r a d e s U

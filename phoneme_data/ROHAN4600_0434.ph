@@ -1,0 +1,1 @@
+p u r i py a ch i w a pau ch e r u n o b u i r i t o n o ky o r i g a m i j i k a i y o o d e s U

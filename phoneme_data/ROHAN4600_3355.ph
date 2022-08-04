@@ -1,0 +1,1 @@
+z o k u g i i N g a a m a k u d a r i s u r u k o o z o o w a m o N d a i d a g a pau k I s e e s u r u d e m e r i cl t o g a k a ch i pau n o b a n a sh i d a

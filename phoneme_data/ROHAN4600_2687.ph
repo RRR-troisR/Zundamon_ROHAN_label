@@ -1,0 +1,1 @@
+k u o cl p a m a k i w a h o o m a ts u k o o h o d e sh o o

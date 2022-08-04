@@ -1,0 +1,1 @@
+p e v e n a a j i s a N pau z a ky o o d a t o sh I t e m o pau s o r e w a y a r i s u g i d a z e

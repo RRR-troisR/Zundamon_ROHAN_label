@@ -1,0 +1,1 @@
+f U s a k u n o t o sh i m o pau w a z u k a n a k o m e k a r a pau s a N by a cl py o o m o n o n e N g u o ch o o sh u u sh I t a

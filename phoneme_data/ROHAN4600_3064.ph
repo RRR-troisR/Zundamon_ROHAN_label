@@ -1,0 +1,1 @@
+b u ry u u w a a w a pau h o o g a h I t o o s a b a k u n o d e w a n a k u pau h I t o g a h o o o s a b a k u n o d a t o t o n a e t e m a s U

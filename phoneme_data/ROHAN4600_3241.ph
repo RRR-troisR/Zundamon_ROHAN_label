@@ -1,0 +1,1 @@
+ky a t i y a w a pau m o cl p a r a t a sh a o g u r e ts u y o b a w a r i s u r u g a pau ky a f i a d a k e w a h o m e t a t a e m a s U

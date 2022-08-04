@@ -1,0 +1,1 @@
+u w a s a d a t o pau a n o m i n e n i w a g u a N d a o n o t a ts u j i N g a s u N d e i r u

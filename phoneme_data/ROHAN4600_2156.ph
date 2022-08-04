@@ -1,0 +1,1 @@
+p i cl ts i g a a n o w a pau ky o o g e k i n a g e N d o o g a m e d a ts u

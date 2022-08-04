@@ -1,0 +1,1 @@
+n a N t o pau r o cl py a k u m o n o n i N z u u o i N s o ts u d e s U k a

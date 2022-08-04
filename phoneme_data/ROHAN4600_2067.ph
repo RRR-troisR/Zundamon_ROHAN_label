@@ -1,0 +1,1 @@
+k u a cl k U s u g a sh i r a k a b a o m i m a sh I t a

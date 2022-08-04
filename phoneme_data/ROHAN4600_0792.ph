@@ -1,0 +1,1 @@
+t o r e b i z o N d a n i w a r u g i w a n a k a r o u g a pau ts u m i n i w a b a ts u o a t a e ny a n a r a n u

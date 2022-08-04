@@ -1,0 +1,1 @@
+ry a N k u a N w a pau b o g o n o o N i N o j u k U ch i sh I t e i r u

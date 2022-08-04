@@ -1,0 +1,1 @@
+r o g e N sh i i d e sh I t a r a pau p a N t o r i i n o k o m e b i ts u n i sh i m a i m a sh I t a

@@ -1,0 +1,1 @@
+p o r u f u y u r i o s u w a pau h o N sh I ts u o m i n u k U ch i k a r a n i t a k e t a t o pau ts U t a w a cl t e m a s U

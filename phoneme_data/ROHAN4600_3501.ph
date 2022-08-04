@@ -1,0 +1,1 @@
+o s e py a N g a sh i N k i N k o o s o k u d e n a k u n a r i pau r o b i i ny o g a h I t o m e m o h a b a k a r a z u g o o ky u u sh I t a

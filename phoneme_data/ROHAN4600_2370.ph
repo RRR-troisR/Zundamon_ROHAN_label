@@ -1,0 +1,1 @@
+g i ch e n o p u r o p o o z u d e pau k a o g a m a cl k a d a

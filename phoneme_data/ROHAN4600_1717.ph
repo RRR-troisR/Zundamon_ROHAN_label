@@ -1,0 +1,1 @@
+a n o t o k i pau g e N my o o g o sh u k o o o ny u u sh u sh I s o k o n e t a k o t o o pau k u i t e i r u

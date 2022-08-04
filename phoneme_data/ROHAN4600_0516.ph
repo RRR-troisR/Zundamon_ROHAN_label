@@ -1,0 +1,1 @@
+ch u i r u r i i ky u u d e N d e gy a k U sh u u n i a cl t a n o w a pau f e r u d i n a N d o k a

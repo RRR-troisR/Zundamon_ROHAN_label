@@ -1,0 +1,1 @@
+k u g a ts u w a pau gy u u ny u u h a i t a ts u n o h o s a n i t i cl d o w e r u o ts U k e r u n o d e pau i ch i j i k a N w a h a y a k u o w a r e r u d a r o o

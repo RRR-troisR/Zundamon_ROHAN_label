@@ -1,0 +1,1 @@
+sh i N e k i b u s o k u d e m e g a b o y a k e t e k i t a

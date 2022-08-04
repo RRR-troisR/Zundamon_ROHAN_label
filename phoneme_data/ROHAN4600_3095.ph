@@ -1,0 +1,1 @@
+b u N k e N n i y o r u t o pau ty a n i t i s u n o m a ch i w a m e e r o n o y o o d a t o pau a a ty u u r o k a r a k I k i m a sh I t a

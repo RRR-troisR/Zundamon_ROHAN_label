@@ -1,0 +1,1 @@
+y e r e b u k o s a N pau k a t a k o r i o h o g u sh i m a sh o o

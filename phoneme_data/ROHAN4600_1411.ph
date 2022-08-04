@@ -1,0 +1,1 @@
+p i v a r i cl ch I s a N pau t a i k U ts u o m a g i r a s U t a m e pau p u r o dy u u s a a o y o b i m a s U k a

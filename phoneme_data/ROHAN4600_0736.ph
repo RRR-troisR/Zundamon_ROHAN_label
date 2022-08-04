@@ -1,0 +1,1 @@
+n u n o g a ch i g i r e t a n o d e pau t a a k u u r u g a f U t a t a b i n u u k o t o n i n a cl t a

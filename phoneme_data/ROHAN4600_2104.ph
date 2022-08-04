@@ -1,0 +1,1 @@
+g u a n u w a pau b i t a m i N d i i g a k e ts u b o o sh I t e r u

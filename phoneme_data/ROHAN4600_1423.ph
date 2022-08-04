@@ -1,0 +1,1 @@
+sh i g u r u by e r u N s o N g a j i k i j i k i n i pau b u j u ts u o d e N j u sh I t e k u r e m a s U

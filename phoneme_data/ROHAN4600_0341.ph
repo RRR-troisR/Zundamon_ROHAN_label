@@ -1,0 +1,1 @@
+k a r a s u g a k u a a k u a a t o i k a k u sh I t a g a pau b i sh i ny o o w a w a h i r u m a z u g o m i b u k u r o o k a t a z u k e r u

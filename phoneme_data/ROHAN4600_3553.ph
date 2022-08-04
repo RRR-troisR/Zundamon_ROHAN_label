@@ -1,0 +1,1 @@
+a ny o r u w a k e e d o n o k o my u sh o o d a g a pau gy a m e r u o i w a u s e k i d e w a pau s a N k a sh a n i t o k e k o m e t a

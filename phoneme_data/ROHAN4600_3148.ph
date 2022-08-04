@@ -1,0 +1,1 @@
+s u ky u r i ts e s u w a pau m u s U k o g a a m a o m e z a s U t o k I k i pau t e k i z a i t e k I sh o d a t o ry o o k a i sh I t a

@@ -1,0 +1,1 @@
+w i N d o o sh o cl p i N g u n i w a pau w a k e m o n a k u b u ts u y o k u g a sh i g e k I s a r e m a s U

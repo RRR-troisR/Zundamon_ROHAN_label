@@ -1,0 +1,1 @@
+r u d i g a h a k u i n i gy u u ny u u o k o b o sh I t e pau gy a a gy a a s a k e N d e i m a sh I t a

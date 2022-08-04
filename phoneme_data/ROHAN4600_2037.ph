@@ -1,0 +1,1 @@
+k o k o g a pau w e i s i i n o ts U t o m e r u sh o k u b a d e s U

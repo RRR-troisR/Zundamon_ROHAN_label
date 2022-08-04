@@ -1,0 +1,1 @@
+t u a N w a k e ts u ny o o n o t a m e pau ky u u ky o k e N s a o u k e m a sh I t a

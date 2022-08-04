@@ -1,0 +1,1 @@
+ts u a h e r u t o g a d a sh I t a t i i k a cl p u w a pau t o b u y o o n i u r e m a sh I t a w a

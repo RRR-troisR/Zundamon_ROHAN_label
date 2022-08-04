@@ -1,0 +1,1 @@
+j a g u d i sh u w a h e b e r e k e d e pau j o y a n o k a n e o k I k i n o g a sh I t a m i t a i d a z e

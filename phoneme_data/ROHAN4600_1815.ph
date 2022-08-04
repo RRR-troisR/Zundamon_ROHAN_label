@@ -1,0 +1,1 @@
+dy a dy u N w a pau by u u m a a k a r a r i cl p a n a k u r a o y u z u r i u k e m a sh I t a

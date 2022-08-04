@@ -1,0 +1,1 @@
+k a w a h a r a k a r a ch I k a i a my u u z u m e N t o p a a k u d e pau p o o k U k a r e e o t a n o m u

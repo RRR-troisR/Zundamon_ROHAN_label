@@ -1,0 +1,1 @@
+r i ny u u a r u n o t a m e pau j e cl t o k o o s U t a a w a k a r i g a k o i s a r e t e i m a s U

@@ -1,0 +1,1 @@
+y a sh i r o d e pau f u r u sh u dy a N n o o sh i n o b i d e e t o o d e b a g a m e t o w a g e s u i n e

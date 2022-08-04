@@ -1,0 +1,1 @@
+b o r u hy e r u t o w a pau y e r i cl ch i n i h o o z u r i sh I t a

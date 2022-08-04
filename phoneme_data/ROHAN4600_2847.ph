@@ -1,0 +1,1 @@
+k a ch I k a ch i n i k a t a i a w a b i m o pau k u e i y a a g a n i r e b a pau y a w a r a k a k U f u ny a f u ny a n i n a r i m a s U

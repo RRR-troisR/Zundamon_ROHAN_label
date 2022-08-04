@@ -1,0 +1,1 @@
+k e g a r e t a k i m o ch i w a pau k i z o k U t o w e k a p I p o o k i i t a r a w a s u r e t a y o

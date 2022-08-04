@@ -1,0 +1,1 @@
+j u u n i j i g o r o n i w a pau t o o w e r u v u n o y a k a t a n i pau r e e by o o g a sh U ts u g e N s u r u

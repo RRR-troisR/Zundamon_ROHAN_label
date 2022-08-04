@@ -1,0 +1,1 @@
+k a ts U sh i k a k u d e by o o k u g a t a b e t a m o n o w a pau p i e t o r o d o r e cl sh i N g u n o s a r a d a d e s U

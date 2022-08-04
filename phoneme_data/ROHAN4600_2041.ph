@@ -1,0 +1,1 @@
+k u o o r i i g a pau f a e N ts a o s a r i m a sh I t a

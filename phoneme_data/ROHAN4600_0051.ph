@@ -1,0 +1,1 @@
+d o ry o k u g a j o o j u s u r u t o k a g i r a n a i g a pau d a k a r a s a b o r u r i y u u n i n a r u w a k e j a n a i

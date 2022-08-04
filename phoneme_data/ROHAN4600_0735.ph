@@ -1,0 +1,1 @@
+my u g u r e e o s e cl t o k u sh I t a ky a pau s o k o r a n o z a k o j a n a k u pau sh u r u ts e o y o b i n a

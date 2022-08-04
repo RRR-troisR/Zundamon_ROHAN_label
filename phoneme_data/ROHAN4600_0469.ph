@@ -1,0 +1,1 @@
+f e b u j i g a u cl k a r i n u n o o s a k i pau p e k o p e k o a t a m a o s a g e t e m a s U

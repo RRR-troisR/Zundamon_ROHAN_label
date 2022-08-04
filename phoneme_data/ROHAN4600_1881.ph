@@ -1,0 +1,1 @@
+b u ry u cl hy a a s a m a w a pau w a g a sh a n o s U p o N s a a pau k u r e g u r e m o t e e ch o o n i n e

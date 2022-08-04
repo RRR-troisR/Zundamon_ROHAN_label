@@ -1,0 +1,1 @@
+b a r u hy e cl t o t o k o h a N o s a N p o s u r u

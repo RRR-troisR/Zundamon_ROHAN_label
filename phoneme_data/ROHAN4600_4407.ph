@@ -1,0 +1,1 @@
+f u d a N w a s a w a y a k a n a k a r e g a pau hy e e t o k o w a g a r u n a N t e o d o r o k i d e s U

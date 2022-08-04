@@ -1,0 +1,1 @@
+w o cl k a j a a j i w a t o t o n o i m a s e N y o

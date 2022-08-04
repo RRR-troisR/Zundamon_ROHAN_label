@@ -1,0 +1,1 @@
+b o r u hy a r u t o n o m i ry o k u w a pau ch o o sh i N o i k a sh I t a k a k U t o b u pau h e d i N g u d e n o h a cl t o t o r i cl k u d a k e j a n a i z o

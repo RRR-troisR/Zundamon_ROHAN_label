@@ -1,0 +1,1 @@
+s e e r a i s o n a w a cl t a k i ry o o d e pau g i f o o d o w a k a t e r u

@@ -1,0 +1,1 @@
+b u r a cl d o j o o t o pau i ny a r i t u n o y u u j o o n i k i r e ts u g a h a i r i pau t a m o t o o w a k a ts U k o t o n i n a r i m a sh I t a

@@ -1,0 +1,1 @@
+n a a pau p o o ky u p a i N s a N my a k U k a r a pau k e m u r i g a t a ch i n o b o cl t e r u z o

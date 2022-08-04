@@ -1,0 +1,1 @@
+ch o cl t o sh I t a m i s u d e pau k u o o g a f U t e k U s a r e ch a cl t a

@@ -1,0 +1,1 @@
+ny u u j a a j i i n o k i o N g a s a g a r i pau t o ts u j o hy o o g a f u cl t e k i t a

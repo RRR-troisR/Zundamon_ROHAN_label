@@ -1,0 +1,1 @@
+w a t a n a b e g a ts U k u r u z u N d a b u r a m a N j e w a pau h o o g a o ch i r u o i sh i s a d a

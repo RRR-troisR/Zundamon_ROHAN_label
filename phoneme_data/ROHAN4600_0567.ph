@@ -1,0 +1,1 @@
+s e e k a g a dy u k u ry u e o m i ch i b i k U sh i i N pau r e N j i ts u m i i r a r e t a y o o n i m i r u n o o

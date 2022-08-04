@@ -1,0 +1,1 @@
+s a r u my a a e w a pau e g u z e k U t i b u y a r a g u j u a r i i n a d o n o k i i w a a d o n i m e z a t o i

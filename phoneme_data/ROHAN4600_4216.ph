@@ -1,0 +1,1 @@
+k a i t o o f o o m u n i w a pau s u u j i o ny u u ry o k u sh I t e k u d a s a i

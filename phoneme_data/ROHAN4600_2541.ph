@@ -1,0 +1,1 @@
+sh o m u g a k a r i w a pau ch o p u t o d u y e d e s U

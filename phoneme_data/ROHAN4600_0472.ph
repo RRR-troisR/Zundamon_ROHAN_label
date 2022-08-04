@@ -1,0 +1,1 @@
+t e d a s U k e sh I t a i g a t o r a w a r e n o m i pau f u g i r i d e m o o sh i w a k e g o z a i m a s e N

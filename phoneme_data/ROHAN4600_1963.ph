@@ -1,0 +1,1 @@
+g u a N gy u w a pau m e d i k a r u ch e cl k u d e a m a t a n o k a N j a o s U k u cl t a

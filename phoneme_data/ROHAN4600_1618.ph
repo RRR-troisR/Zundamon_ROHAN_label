@@ -1,0 +1,1 @@
+w a t a sh i n o a n i w a pau k u o d e n e N ts u o s a g a sh i m o t o m e pau h a y a j i n i n i sh I ch a cl t a n o d e s U

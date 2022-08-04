@@ -1,0 +1,1 @@
+hy o s u k u w a pau a s o b i m o g e e n o k o y a sh i t o sh i m a s U

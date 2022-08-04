@@ -1,0 +1,1 @@
+v a n a w a j i ts u ry o k u n i t o b o sh i i g a k o N j o o g a a r i pau j o e r u w a s o n o gy a k u d e a r u

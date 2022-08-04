@@ -1,0 +1,1 @@
+f e v u z i w a pau z u g a b e o g a t a b e t a i n o n i pau h a b a m a r e t e sh o N b o r i sh I t a

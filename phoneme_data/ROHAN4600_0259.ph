@@ -1,0 +1,1 @@
+d i s U p o o z a a g a a r e b a pau n a m a g o m i o k i g a r u n i sh o b u N d e k i m a s U

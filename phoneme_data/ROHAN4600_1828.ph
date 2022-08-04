@@ -1,0 +1,1 @@
+a n o pau k o n o s u u ts u w a w o cl sh a b u r u d a t o u k a g a cl t e t a n o d e s U g a

@@ -1,0 +1,1 @@
+d u m u n a g u u a r u w a j i N z o o g a w a r u k u pau a b o k a d o y a k a b o ch a o y o k U t a b e r u

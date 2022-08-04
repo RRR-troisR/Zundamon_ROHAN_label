@@ -1,0 +1,1 @@
+h o r a pau s e cl k a k u h a n e o n o b a sh I t e t u f a a r a m a d e k i t a n o d a k a r a pau r a t a t u y u d e m o t a b e m a sh o

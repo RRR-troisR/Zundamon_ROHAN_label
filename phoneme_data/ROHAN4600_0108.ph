@@ -1,0 +1,1 @@
+g u i i d o cl t e pau j a p a n i i z u d a k e j a n a k u pau ch e m a u e b i k a t a r i m a d e p e r a p e r a d a cl t e

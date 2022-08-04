@@ -1,0 +1,1 @@
+t a k u r a m a k a N h o k U t o o pau dy o N k o t a N n i a r u s o o k o g a s e b a m a r i m a s U

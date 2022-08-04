@@ -1,0 +1,1 @@
+y u r i s a w a n o a i sh a w a pau f i a cl t o pau ch i N k u e ch e N t o d e s U k a

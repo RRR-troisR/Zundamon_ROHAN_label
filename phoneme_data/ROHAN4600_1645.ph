@@ -1,0 +1,1 @@
+y o o j a k u n a w a k a g i m i n o r a N g u my u a d e s U g a pau k i r e r u t o y a b a i d e s U y o

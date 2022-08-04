@@ -1,0 +1,1 @@
+h a y a sh i n o n a k a d e pau p e r i d o cl t o n o g e N s e k i o h i r o cl t a

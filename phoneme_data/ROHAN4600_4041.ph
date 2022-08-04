@@ -1,0 +1,1 @@
+gy u cl t o k u r u u m u w a pau d e N sh i k i i o w a s u r e r u t o pau k e e k o k u o N g a n a r i m a s U

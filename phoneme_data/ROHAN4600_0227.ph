@@ -1,0 +1,1 @@
+my o o g a t a n i k a r a m e t o r o n i n o r i ts u g i d e pau o g i k u b o m a d e ch o cl k o o d e s U n e

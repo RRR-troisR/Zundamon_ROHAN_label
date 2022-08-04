@@ -1,0 +1,1 @@
+s e cl ch u u a N t o sh I t e pau p i cl f e r o o e r a b u

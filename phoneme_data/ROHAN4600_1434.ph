@@ -1,0 +1,1 @@
+y o k a z e g a k a o r u j i k i w a pau ny u u h e b u r i d i i z u sh o t o o g a n a ts U k a sh I k u n a r i m a s U

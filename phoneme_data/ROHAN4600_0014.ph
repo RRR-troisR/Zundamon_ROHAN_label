@@ -1,0 +1,1 @@
+a t e n a w a k u a j i m o d o pau t a d a sh i g a k i w a k a t o r i e e t i d a i d e o n e g a i sh i m a s U

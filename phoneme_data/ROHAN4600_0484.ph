@@ -1,0 +1,1 @@
+j e e N w a pau ts o ts i r u g o n o k o o z a o k e N g a k U sh i pau j u k o o o k i m e m a sh I t a

@@ -1,0 +1,1 @@
+b u k u N o t a t e t a dy u w e i d a g a pau by u u f o o t o d e j i k o n i m a k I k o m a r e pau sh i b o o sh I t a

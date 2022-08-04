@@ -1,0 +1,1 @@
+b e r u s a i y u d e w a pau a m a y a k a s U k o t o n a k U k i b i sh I k u sh I ts u k e r u f u u d o g a n e z u i t a s o o d e s U

@@ -1,0 +1,1 @@
+v i j u a r u w e e t o w a pau r e i a u t o o k a N g a e r u u e d e pau j u u y o o d e a r u

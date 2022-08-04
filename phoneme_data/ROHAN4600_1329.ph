@@ -1,0 +1,1 @@
+j e w e r u g a k u w a w a r u t o pau k i m o d a m e sh i d e y o r u o f U k a s U h a m e n i n a r u

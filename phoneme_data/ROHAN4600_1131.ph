@@ -1,0 +1,1 @@
+b o ky a b u r a r i i g a h i N j a k u n a z i i b a a d a g a pau i k i o i y o k U sh i cl p I ts u s u r u

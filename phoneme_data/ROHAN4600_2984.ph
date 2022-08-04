@@ -1,0 +1,1 @@
+k o o sh i j i m a n o o r i m o n o d a t o k o N r a N s u r u k a r a pau ch u u e n i w a ch e cl k u m o y o o t o ts U t a e t e k u r e

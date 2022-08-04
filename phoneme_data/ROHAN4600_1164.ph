@@ -1,0 +1,1 @@
+f a ny a a n o w a b u k I k a N sh o o g a sh u m i d e pau v i s a y a n o p i n u t i o t o k u b e ts U k o n o m u

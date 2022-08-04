@@ -1,0 +1,1 @@
+sh u N n o e sh a r o cl t o y a sh u N g i k u g a g u z a i n o pau e e y o o m a N t e N n o n a b e d a

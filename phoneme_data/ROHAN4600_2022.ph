@@ -1,0 +1,1 @@
+b u r i y a a k u n o h I t o g a r a o t a t o e r u n a r a pau n i t o r o d e s U n a

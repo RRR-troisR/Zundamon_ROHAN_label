@@ -1,0 +1,1 @@
+b a n o ry u u sh i r o N n i o i t e m o pau ry u u t a i r i k i g a k u g a t o o j o o s u r u

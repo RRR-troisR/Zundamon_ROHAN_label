@@ -1,0 +1,1 @@
+sh i N sh i N o r e N m a s u r u n a r a b u d o o t o k I k i m a s U g a pau z a b u r u ch i d a t o n a n i g a n a r a e r u k a sh i r a b e m a s U

@@ -1,0 +1,1 @@
+y e s u p a a w a py u a d a k a r a pau s a g i sh i g a d a m a s U n a d o k a N g a e n o s o t o d a y o

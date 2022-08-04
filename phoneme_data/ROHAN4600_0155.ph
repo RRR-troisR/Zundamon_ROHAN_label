@@ -1,0 +1,1 @@
+m o sh I k u w a pau my u f i d e t o y e g i sh e n o p e a n a r a k a ch i m e g a a r u k a m o

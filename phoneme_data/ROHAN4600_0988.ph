@@ -1,0 +1,1 @@
+p a v i ch e v i cl ch i g a p a a t o n a a o ts u n o r u n o w a pau m e z u r a sh i i n a

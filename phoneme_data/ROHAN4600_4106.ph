@@ -1,0 +1,1 @@
+v o o r o k o z i n o k o o ky u u n a ry o o r i g a pau ky u u sh o k u n i d e r u w a k e g a n a i

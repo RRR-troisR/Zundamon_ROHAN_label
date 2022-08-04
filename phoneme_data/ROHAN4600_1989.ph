@@ -1,0 +1,1 @@
+ch a k o o r u g u r e e n o s u u ts u o k i t a k a n o j o w a pau b u j i n i f U k u sh o k u sh I t a

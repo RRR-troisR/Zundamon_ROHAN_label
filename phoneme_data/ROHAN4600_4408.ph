@@ -1,0 +1,1 @@
+j u u d o n o z a s o o w a pau i t a m i y a k a y u m i o t o m o n a u k o t o m o a r i m a s U

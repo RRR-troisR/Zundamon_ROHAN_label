@@ -1,0 +1,1 @@
+ts a v u t a cl t o d e pau k e e b i n a k i z u o o i m a sh I t a

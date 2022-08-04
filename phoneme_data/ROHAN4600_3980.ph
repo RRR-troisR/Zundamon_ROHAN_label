@@ -1,0 +1,1 @@
+t a k u y a n o o n e e s a N g a pau a k u u a r u n o ts U k a i t e d a t o w a pau o d o r o k i d a

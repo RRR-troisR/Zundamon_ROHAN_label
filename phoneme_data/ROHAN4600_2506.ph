@@ -1,0 +1,1 @@
+b a r u t o w o my e i n o gy a g u d e b a k U sh o o sh I t a

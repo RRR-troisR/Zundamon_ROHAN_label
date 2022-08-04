@@ -1,0 +1,1 @@
+b o r u t e e r u w a pau sh U k o o sh I t e i r u y o o n i m i e t e pau i n e m u r i sh I t e i m a s U

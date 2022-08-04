@@ -1,0 +1,1 @@
+k a N k o k u d e h a cl sh o o sh I t a k e e p o cl p u g a pau b i r u b o o d o ch a a t o d e sh u i n i n a cl t a

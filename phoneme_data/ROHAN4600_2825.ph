@@ -1,0 +1,1 @@
+i y a n a y o k a N w a t e k I ch u u d e pau p o ny a a n o g a k o o z u i n i s a r a s a r e pau m a ch I ch u u d e k e e sh o o g a n a cl t e m a s U

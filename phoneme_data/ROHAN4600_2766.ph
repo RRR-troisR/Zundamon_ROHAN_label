@@ -1,0 +1,1 @@
+o r e w a r o m a a ny a n i h a g u k u m a r e t a

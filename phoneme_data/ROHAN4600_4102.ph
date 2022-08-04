@@ -1,0 +1,1 @@
+t a k I s a N k a r a pau k u i s u a z u n o h a n a sh i o k I k i pau ch i sh I k i g a f u e t a z o

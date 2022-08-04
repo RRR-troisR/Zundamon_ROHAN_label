@@ -1,0 +1,1 @@
+h e r a k u r e s U k u N pau i n i a n a g a a i t a y o o n a k a o o sh I t e r u k e d o pau d a i j o o b u

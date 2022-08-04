@@ -1,0 +1,1 @@
+t a b u N pau e k i n o b a i t e N n i pau f u y u a h a N d o r a N t a N w a u cl t e n a i d a r o o

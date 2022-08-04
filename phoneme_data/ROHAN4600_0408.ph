@@ -1,0 +1,1 @@
+w o o d o w a ts o N g a n i j e N g a d e m a k e pau m i j i m e n a k i m o ch i n i n a r i m a sh I t a

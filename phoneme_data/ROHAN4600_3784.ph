@@ -1,0 +1,1 @@
+a y o o dy a a n o pau m a h a r a j a pau i N t a a k a r e cl j i o u ts U sh i t a sh o cl t o d a r o

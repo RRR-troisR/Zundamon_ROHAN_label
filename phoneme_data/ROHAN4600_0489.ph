@@ -1,0 +1,1 @@
+s o k o k u d e w a pau m o cl ts a r e r a n o k a r u ts o o n e g a sh I t a sh i m a r e t e i m a s U

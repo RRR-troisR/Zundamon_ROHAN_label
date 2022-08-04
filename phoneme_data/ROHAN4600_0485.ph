@@ -1,0 +1,1 @@
+g u e s u w a pau f o o k i N t o n o y a k U s o k u o w a s u r e t a n o d e w a n a i d e sh o o k a

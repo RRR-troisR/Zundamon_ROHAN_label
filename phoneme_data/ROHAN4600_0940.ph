@@ -1,0 +1,1 @@
+r i b a a d i w a y u u sh o k u g o pau m u s U k o n i k a N j i d o r i r u o t o k a s e r u

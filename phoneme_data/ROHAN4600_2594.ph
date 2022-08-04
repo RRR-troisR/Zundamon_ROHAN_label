@@ -1,0 +1,1 @@
+ch e r u k u e cl t i w a pau hy a k U sh o o o k i w a m e r u

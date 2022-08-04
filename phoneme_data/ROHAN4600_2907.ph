@@ -1,0 +1,1 @@
+s u u p a a f o o my u r a d e pau f i o r e N ts o g a pau r a k u r a k U t o p o o r u t u u w i N o k a z a r u d a r o

@@ -1,0 +1,1 @@
+n e e pau py a ch i e t a a sh u k a n i pau m i z u m o sh I t a t a r u i i o t o k o g a i r u cl t e b a

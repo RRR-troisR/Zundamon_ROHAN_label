@@ -1,0 +1,1 @@
+g a N y u u ry o u g a m a ch i g a cl t e r u t o pau j e n o b e e sh i n o sh I t e k i d e h a cl k a k U sh i m a sh I t a

@@ -1,0 +1,1 @@
+N N pau sh e r u b i i n o w a pau k a N j u k U t o m a t o n o m i n e s U t o r o o n e g a k o o b u ts u d a y o

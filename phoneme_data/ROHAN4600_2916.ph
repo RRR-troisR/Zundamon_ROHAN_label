@@ -1,0 +1,1 @@
+w i r u s o N w a pau t a m a n i w a i k i n u k i d e ts U k a r e o i y a s a n a i t o pau k a k o k u n a gy o o m u o g i b u a cl p u sh I ch i m a u d a r o

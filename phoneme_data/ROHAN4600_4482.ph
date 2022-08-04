@@ -1,0 +1,1 @@
+a n o k o m i g u a i d a t o pau n i j i k a N w a n a r a b a n a i t o m u r i s o o d e s U y o

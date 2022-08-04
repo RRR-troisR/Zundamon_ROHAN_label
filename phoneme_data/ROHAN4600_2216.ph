@@ -1,0 +1,1 @@
+p a r a d i i z o n o s e t a k e w a pau s o r e h o d o t a k a k u n a i d e s U

@@ -1,0 +1,1 @@
+i b u gy e e n i y e v u n a n o pau k a g e k i n a d o k u z e ts u b u r o g u g a sh o s e k I k a sh i pau hy a k u m a N b u u r e t a s o o n a

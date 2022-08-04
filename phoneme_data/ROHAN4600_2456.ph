@@ -1,0 +1,1 @@
+p e d u k a e u s u w a pau k o N y a k u y u b i w a o w a t a sh i m a sh I t a

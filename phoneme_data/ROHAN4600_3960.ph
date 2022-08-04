@@ -1,0 +1,1 @@
+a i sh o o n o y o k u n a i a i t e t o i r u t o pau g u a i g a w a r u k u n a cl t e k u r u

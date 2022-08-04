@@ -1,0 +1,1 @@
+ch e sh a n e k o n o m i ry o k u o k a t a r a u g o r u ts i n e t o v o o t i g a N w a pau s U k i d a r a k e d a r o

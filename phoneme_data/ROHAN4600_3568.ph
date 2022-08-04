@@ -1,0 +1,1 @@
+b e dy a i w a pau s o b o r o d o N n o t a b e s u g i d e pau ch u u s e e sh i b o o g a s e e j o o h a N i o k o e t a

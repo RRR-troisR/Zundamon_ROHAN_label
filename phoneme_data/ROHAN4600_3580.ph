@@ -1,0 +1,1 @@
+ty o g i ch i n o j o o h o o g a r o k u n i d e t e k o n a i sh i pau r e p o o t o w a k o k o m a d e d e s u m a s U k o t o n i sh i y o o

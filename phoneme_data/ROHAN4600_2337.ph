@@ -1,0 +1,1 @@
+i d a i n a r u pau t i ty u b a s a m a n o o m e g a n e n i k a n a u

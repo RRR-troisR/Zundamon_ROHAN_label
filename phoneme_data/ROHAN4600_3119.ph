@@ -1,0 +1,1 @@
+r i d i gy e r u w a pau a k i g u ch i d e ky u u g e k i n i h i e k o m u t o pau t a i ch o o o k u z u sh i y a s u m i g a ch i n i n a r u

@@ -1,0 +1,1 @@
+ty o my u r u t a m u d e pau k a j i u ch I s u r u k a

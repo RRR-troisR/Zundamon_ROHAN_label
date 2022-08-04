@@ -1,0 +1,1 @@
+h a r i k e e N g a ch o k u g e k I sh i pau s e m o n i ts e n i s e cl ch I s u r u pau m o ny u m e N t o n o k e N z o o o o k u r a s e t a

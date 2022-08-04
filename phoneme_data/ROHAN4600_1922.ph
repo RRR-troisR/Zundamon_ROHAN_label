@@ -1,0 +1,1 @@
+hy o o r o o z e m e d e pau w a g a g u N n o s e N ry o k u w a s o g a r e pau s a N b o o w a u z u k u m a r u

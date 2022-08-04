@@ -1,0 +1,1 @@
+a k a i ch a N ch a N k o w a pau h o N r a i m a y o k e d e k a N r e k i i w a i n o t e e b a N d a g a pau k a i d a N n i m o d e t e k u r u

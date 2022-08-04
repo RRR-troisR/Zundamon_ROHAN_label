@@ -1,0 +1,1 @@
+m o N g o N g o w a pau z o o n i k u w a r e b u N p u t a i g a h i r o g a cl t a t o pau r u s a r i y o o n o d o ky u m e N t o n i k i j u ts u g a a r i m a s U

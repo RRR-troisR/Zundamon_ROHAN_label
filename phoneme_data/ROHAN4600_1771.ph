@@ -1,0 +1,1 @@
+ch a p a k u a d e pau b a k U ch i n i m a k e t a f U s o k u o pau ky o k u g e e d e m a k a n a cl t a

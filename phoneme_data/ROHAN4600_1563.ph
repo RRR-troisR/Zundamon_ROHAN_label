@@ -1,0 +1,1 @@
+g u e r u r a g a d e N j i sh a k u o f U ky u u s a s e pau h I t o b i t o w a y u t a k a n i k u r a s e r u

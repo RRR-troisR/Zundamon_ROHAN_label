@@ -1,0 +1,1 @@
+k o n o g e e m u w a y o k U t e h I k i w a k e d a k e d o pau m a d a by e r i ts u a n o h e r u p u w a i r u

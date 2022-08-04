@@ -1,0 +1,1 @@
+p u sh e b o r u s U k i w a pau j a a k u n a e m i o u k a b e pau r o r e N ts o t o s e e z e ts u n a n a g u r i a i o h a j i m e t a

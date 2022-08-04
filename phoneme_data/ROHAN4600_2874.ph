@@ -1,0 +1,1 @@
+hy u r u z e N b e cl k u n o m a n a m u s u m e g a y u u k a i s a r e t a g a pau sh u b o o sh a k a r a n o ts u u w a o gy a k U t a N ch i d e k i m a sh I t a

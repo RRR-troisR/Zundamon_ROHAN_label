@@ -1,0 +1,1 @@
+z e N k a i t o w a u cl t e k a w a cl t e pau w a f u u t e i s U t o n i sh i a g e t a

@@ -1,0 +1,1 @@
+ts u m i o n i k u N d e h I t o o n i k u m a z u pau v a sh i ry e v i cl ch i o n i k u N d e m o pau sh I k a t a g a n a i z e

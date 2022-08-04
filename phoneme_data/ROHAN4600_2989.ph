@@ -1,0 +1,1 @@
+s a t e pau s o r e d e w a j u u ry o k u g a sh o o z u r u m e k a n i z u m u o o sh i e r u n o d e pau sh i cl k a r i m e m o o t o r u y o o n i

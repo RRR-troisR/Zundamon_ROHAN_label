@@ -1,0 +1,1 @@
+p e t u r a g a k i N sh U s u r u t o k I k i pau s o k u z a n i m u r i cl sh o cl t e i cl ch a cl t a y o

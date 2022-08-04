@@ -1,0 +1,1 @@
+ny u u j a a j i i sh u u d e w a pau k o cl k I k e e y o o g a g i m u z u k e r a r e t e i m a s U

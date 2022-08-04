@@ -1,0 +1,1 @@
+t e N k i g a y o i n o d e pau k a w a r a d e t u N k a r o N o t a b e r u n o m o t a n o sh i s o o d a

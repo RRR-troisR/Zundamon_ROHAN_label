@@ -1,0 +1,1 @@
+ch i i f u pau k a n o o d e a r e b a pau j u u r u o k o y o o sh I t e i t a d a k e m a s e N k a

@@ -1,0 +1,1 @@
+ry u u t o sh o o n e N g a pau y u u k a N n i t a ch i m u k a u m o n o g a t a r i d e s U

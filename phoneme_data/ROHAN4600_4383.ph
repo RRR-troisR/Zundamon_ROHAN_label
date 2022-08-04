@@ -1,0 +1,1 @@
+a m a r i n o a k U sh u u d e pau s o n o b a n i i t a z e N i N g a k a o o sh I k a m e t a

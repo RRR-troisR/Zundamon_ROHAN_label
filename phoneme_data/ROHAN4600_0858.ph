@@ -1,0 +1,1 @@
+t o n a r i k a r a k I k o e t a ch e cl k u m e i t o n o k o e n o n u sh i w a pau w o r u ts u d a t o o m o i m a s U

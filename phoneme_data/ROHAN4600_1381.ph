@@ -1,0 +1,1 @@
+b o cl ch a N n a r a pau h a n a r e b e y a d e ny a N k o t o t a w a m u r e t e m a s U y o

@@ -1,0 +1,1 @@
+g u i i d i w a u N y u ky o k u n i ts U t o m e t e k a r a pau ry a p u n o f U t o sh i r i a cl t a

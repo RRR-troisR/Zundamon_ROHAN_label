@@ -1,0 +1,1 @@
+o sh o o g a h e r u m a ny u s u o y o b i pau k o cl s o r i p i z a p o t e t o o a g e m a sh I t a

@@ -1,0 +1,1 @@
+g a k a n o e r i o cl t o w a pau o s a n a i k o r o n o j e sh i i o e g a k u

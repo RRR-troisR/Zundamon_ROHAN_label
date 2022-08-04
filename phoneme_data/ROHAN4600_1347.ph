@@ -1,0 +1,1 @@
+f i r i p i N d e t a i m u k a p U s e r u o u m e t e pau p I p e r a a d o o t a n o sh i m u

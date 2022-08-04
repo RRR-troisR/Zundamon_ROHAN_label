@@ -1,0 +1,1 @@
+ky u u y u u o o gy u s U t o n o pau g u u r e i t o k o o r u n i k o t a e pau s a i ch a r e N j i d a

@@ -1,0 +1,1 @@
+sh U k u j i ts U ch u u n i pau hy a r u m u s u d o cl t i r u k a r a m e cl s e e j i g a t o d o i t a g a pau k i d o k U s u r u u sh i t o k U k a

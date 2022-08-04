@@ -1,0 +1,1 @@
+p e cl t o n o g u a m u k u i n a g a pau m e e d o e t a b i d a ts u

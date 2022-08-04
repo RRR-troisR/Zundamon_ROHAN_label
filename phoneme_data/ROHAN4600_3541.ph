@@ -1,0 +1,1 @@
+v u cl p a a t a a r u n o b u t i cl k u d e pau d e N py o o n i k a k a r e t a k i N g a k u o m i t e pau t e m o ch i o k i g u s u r u

@@ -1,0 +1,1 @@
+k o a n a f a N w a pau k i r a r e y a k u n i ch u u m o k U s u r u N d e s U

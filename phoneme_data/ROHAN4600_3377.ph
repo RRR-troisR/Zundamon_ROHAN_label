@@ -1,0 +1,1 @@
+u ch I h i sh i g a r e t a b u r i cl ts i w a pau ry u k a k a r a m o r a cl t a ky u p u r a n o h a N k a ch i d e pau n a m i d a o n u g u u

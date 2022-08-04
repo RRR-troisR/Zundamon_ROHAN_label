@@ -1,0 +1,1 @@
+sh u t u N p u w a ch a r a ch a r a sh I t e m a s U g a pau g u N t u u r u d e b o o e k i g a i sh a o i t o n a N d e i m a s U

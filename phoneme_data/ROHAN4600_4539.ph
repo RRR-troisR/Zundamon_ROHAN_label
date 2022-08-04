@@ -1,0 +1,1 @@
+s o o z e ts u n a dy u e r u o e g a i t a s a k U h i N

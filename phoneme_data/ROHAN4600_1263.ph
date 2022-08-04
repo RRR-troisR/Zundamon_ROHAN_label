@@ -1,0 +1,1 @@
+g u a d e r u u p e o a r u k U t o pau i r e gy u r a a n a i b e N t o n i s o o g u u sh i m a sh I t a

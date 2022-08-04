@@ -1,0 +1,1 @@
+j i p u r o f i r i N g a k i i t e pau n u k a b i r a d a m u d e h a k u j i t a i w a pau m a n u k a r e t a

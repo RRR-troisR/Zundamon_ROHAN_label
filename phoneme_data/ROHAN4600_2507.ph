@@ -1,0 +1,1 @@
+g u e r e e r o w a pau k a m a s e i n u n i f U k a k u o t o cl t a

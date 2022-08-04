@@ -1,0 +1,1 @@
+t o k u i n o m o sh a d e pau s e my o o n o f u o z a s e ts U s a s e r u t o w a pau a N t a t a d a m o n o j a n a i n a

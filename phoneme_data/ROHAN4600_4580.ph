@@ -1,0 +1,1 @@
+dy o s a N t o b a N sh a k u o k a w a sh I t a h i b i g a pau o m o i o k o s a r e r u

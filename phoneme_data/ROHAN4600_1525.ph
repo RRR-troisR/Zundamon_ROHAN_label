@@ -1,0 +1,1 @@
+y a o h a n a t e t o i w a r e t e m o pau p a b i i a n o m a ch i n a k a j a a b u n a i j a r o

@@ -1,0 +1,1 @@
+ch u u sh o o k i gy o o o t a s U k e r u t a m e n i pau k o N ts e r u N o s o o sh i sh I t a n o d a cl t a

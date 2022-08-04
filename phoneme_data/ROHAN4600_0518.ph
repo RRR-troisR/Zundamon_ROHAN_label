@@ -1,0 +1,1 @@
+sh e r i f o v i cl ch i n o k o k u b e ts u sh I k i d e n a r a pau k o cl ky u u sh I t a cl t e i i N d a z e

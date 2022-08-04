@@ -1,0 +1,1 @@
+z u i b u N m a n u k e n a h a n a sh i d a g a pau n e N p i o w a s u r e ts u cl p a sh i r i pau s a b a k u d e g a s u k a k e n i n a cl ch i m a cl t a

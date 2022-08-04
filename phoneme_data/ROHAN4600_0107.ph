@@ -1,0 +1,1 @@
+py a n i i g a n o i z a k a y a d e pau v o r a py u k U t o g e r a g e r a w a r a u

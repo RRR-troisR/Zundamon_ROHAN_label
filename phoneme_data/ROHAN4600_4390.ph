@@ -1,0 +1,1 @@
+k a j i my e sh u w a pau y u d e t a k e g a n i o i cl sh i N f u r a N n i t a b e t e i r u

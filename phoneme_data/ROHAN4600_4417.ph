@@ -1,0 +1,1 @@
+a o m e e s o k a n o gy o r u i w a pau a N sh I ts u d e sh i i k u sh I t e k u d a s a i

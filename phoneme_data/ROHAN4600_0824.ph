@@ -1,0 +1,1 @@
+my a N m a a n o my e i o ky o t e N n i pau k I ky o o o u e r u j u gy o o o ky o o j u sh i m a s U

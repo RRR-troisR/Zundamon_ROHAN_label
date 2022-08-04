@@ -1,0 +1,1 @@
+r e e d a a n i gy o g u N g a u ts u r i pau my u k e i j i i g a ky a a ky a a y o r o k o b u

@@ -1,0 +1,1 @@
+g u u r a a t o w a pau d i i p u ny u u r a r u n e cl t o w a a k u o r o b o cl t o n i k u m i k o m u

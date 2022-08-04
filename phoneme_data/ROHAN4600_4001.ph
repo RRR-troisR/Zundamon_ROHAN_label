@@ -1,0 +1,1 @@
+k o k o w a pau o i sh i i my o o g a o s a i b a i sh I t e i r u pau sh i n i s e n o o k a d e s U

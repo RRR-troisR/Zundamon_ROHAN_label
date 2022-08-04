@@ -1,0 +1,1 @@
+k a z a cl t e a r u h a n a t a b a w a pau gy e r e r u p u s a N k a r a i t a d a i t a m o n o d e s U

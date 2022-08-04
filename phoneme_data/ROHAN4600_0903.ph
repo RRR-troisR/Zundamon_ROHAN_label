@@ -1,0 +1,1 @@
+s i w e r i N w a b o o k e N s U k i d e pau a b u n a i b a sh o d e m o t a m e r a w a z u d e m u k u

@@ -1,0 +1,1 @@
+b e ts o p u w a k a N g a s u r u d o i n o d e pau b u r a m u w e r u k a r a n o m u ch a b u r i o pau k o z a k a sh i k u b o y a k a sh I t a

@@ -1,0 +1,1 @@
+k i w a m e t e s e e ch i n i k a k a r e t a h a cl py o o sh o o r o k u g a pau ny o j i ts u n i k a t a r u

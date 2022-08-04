@@ -1,0 +1,1 @@
+b u j a p i d a a s a n a n o p o o z u o pau k u m o n o sh I t a d e k i m e r u t o pau gy a r a r i i g a d e k i m a sh I t a

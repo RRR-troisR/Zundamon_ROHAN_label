@@ -1,0 +1,1 @@
+py e t o r i y a k o o f u w a g i r i g a t a i k a r a pau p i N ch i n i n a r e b a t a s U k e n i k u r u s a

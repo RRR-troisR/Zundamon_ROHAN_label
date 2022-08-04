@@ -1,0 +1,1 @@
+ch i i z u k u e i k u n i f u j i g a s a k i m i d a r e pau w i r u f o o d o w a r i ky u u r u o n o m u

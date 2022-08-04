@@ -1,0 +1,1 @@
+m a m e dy a r o f u w a pau sh a ky o o d e m e N t a r u o ny u u t o r a r u n i m o d o s e r u

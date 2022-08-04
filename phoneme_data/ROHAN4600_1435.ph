@@ -1,0 +1,1 @@
+w i N d i t o n o sh o gy o o pau ch i ts u j o o m i d a sh i pau k a m i o m o o s o r e n u g u ky o d e s U n a

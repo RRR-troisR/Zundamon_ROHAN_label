@@ -1,0 +1,1 @@
+p u r o p a t i d a k e d e n a k u pau s U k u r i p U t o z e N p a N n o ch e cl k u n i m a d e pau s a gy o o g a o y o b u

@@ -1,0 +1,1 @@
+ry o o sh i n i n a cl t e k a r a g a i j u u k u j o o sh I t e o r i pau i r a i w a r o cl py a cl k e N o k o e m a sh I t a

@@ -1,0 +1,1 @@
+j o N w a k e n e d i o ky o o s a sh I t e pau s a g i n o u k e k o o s a s e m a sh I t a

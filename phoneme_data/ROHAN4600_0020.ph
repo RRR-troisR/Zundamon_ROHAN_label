@@ -1,0 +1,1 @@
+f o o j a g a h e r i k U ts u o sh U ch o o sh i pau k i s o k u g a a r a t a m a cl t a

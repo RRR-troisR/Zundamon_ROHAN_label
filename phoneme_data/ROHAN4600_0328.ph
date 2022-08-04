@@ -1,0 +1,1 @@
+b u r u u t u u s u n o o o d i o r e sh i i b a a g a pau ry o o k o s U p a d a t o

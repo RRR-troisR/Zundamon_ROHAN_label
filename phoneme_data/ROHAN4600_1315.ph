@@ -1,0 +1,1 @@
+py e e N t o i u n a k i g o e w a pau t u b a d e sh i cl t a d o o y o o o u t a u k o t o d e t o m a cl t a

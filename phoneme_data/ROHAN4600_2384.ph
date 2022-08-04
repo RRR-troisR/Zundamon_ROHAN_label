@@ -1,0 +1,1 @@
+sh a u m i y a a N n i k a N k o k U s a r e pau sh o k u o j i sh i t a

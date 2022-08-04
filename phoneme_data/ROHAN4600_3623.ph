@@ -1,0 +1,1 @@
+k e e k e N k a r a s u g u pau j e cl t o e N j i N g a y a k e t e i r u t o w a k a r i m a sh I t a

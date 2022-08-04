@@ -1,0 +1,1 @@
+gy o k u ch e N w a pau ky o o z o m e y o r i e d o z o m e g a s U k i d a

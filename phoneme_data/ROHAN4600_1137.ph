@@ -1,0 +1,1 @@
+d e sh u k u i i w a pau k o cl ky o o n o m a m o r i o k a t a m e pau k a g e k i n a t e r o d e m o g e k I t a i d e k i r u

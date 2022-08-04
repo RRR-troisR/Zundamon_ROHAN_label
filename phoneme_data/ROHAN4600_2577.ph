@@ -1,0 +1,1 @@
+j u k u n o g e cl sh a w a pau f a cl ts i i n i n i o s a m e r u n o

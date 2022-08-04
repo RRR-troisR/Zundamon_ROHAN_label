@@ -1,0 +1,1 @@
+ts i a s a N w a pau m u sh I s a s a r e d e m a cl k a n i m a b u t a o h a r a sh i pau k i n o d o k u d a

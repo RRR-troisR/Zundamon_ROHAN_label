@@ -1,0 +1,1 @@
+w o sh e r e o ch i r a ts U k a s e pau r o o d o o sh I t e m a s U

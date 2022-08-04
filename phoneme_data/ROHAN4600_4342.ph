@@ -1,0 +1,1 @@
+t o r e f a N w a pau a k a r i n i m u r a g a r u m u sh i o pau u t o m a sh i k u o m o cl t e i r u

@@ -1,0 +1,1 @@
+b o r u ts a a n o n o j i N k o o g a g e k i z o o sh I t e i r u

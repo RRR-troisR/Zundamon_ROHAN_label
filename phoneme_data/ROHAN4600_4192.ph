@@ -1,0 +1,1 @@
+z e cl t o s e d a i n o k o d o m o t a ch i w a pau py u a n a k o k o r o d e y o n o n a k a o m i t e i r u

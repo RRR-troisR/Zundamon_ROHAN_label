@@ -1,0 +1,1 @@
+k o k o w a e d a h a d e w a n a k u m i k i y u e n i pau h I k e ts U s u r u t o v i d o i e n o k e e k a k U s u b e t e g a k u z u r e r u

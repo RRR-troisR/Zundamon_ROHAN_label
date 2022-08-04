@@ -1,0 +1,1 @@
+o r e w a pau j u d i cl t a n o y a r u k o t o n a r a pau k e N g u t o w a z u s a m a t a g e n a i

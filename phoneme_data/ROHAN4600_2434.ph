@@ -1,0 +1,1 @@
+t e ty o n a r a pau b o k U t o k a b u k i o m i t e m a sh I t a

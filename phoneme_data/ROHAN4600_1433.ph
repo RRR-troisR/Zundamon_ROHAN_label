@@ -1,0 +1,1 @@
+s U k u ry a a b i N t o n o k a i sh o k u d e pau f u y u u j o N g a n a g a r e t e i m a sh I t a

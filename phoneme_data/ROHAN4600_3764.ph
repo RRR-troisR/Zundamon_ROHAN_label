@@ -1,0 +1,1 @@
+ch o o h e e k i o m u k o o k a s u r e b a pau z i N d i i s e e ry o k u w a o t o r o e r u k a

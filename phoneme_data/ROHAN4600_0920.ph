@@ -1,0 +1,1 @@
+k a d i y e v i cl ch i w a pau k a sh I k o i g a y o o j i N b u k a k u pau m e cl t a n i m i z e n i o k i r a n a i

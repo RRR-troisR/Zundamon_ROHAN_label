@@ -1,0 +1,1 @@
+k a s U t e r a w a n a g a s a k i m e e b u ts u d e pau p o r u t o g a r u k a r a ts U t a w a r i m a sh I t a

@@ -1,0 +1,1 @@
+t a sh I k a pau t i r a m i s u n i w a r e m o N o s o e r u n o m o o i sh i i y o

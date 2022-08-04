@@ -1,0 +1,1 @@
+ch a d o w i cl k u n o h i m e g o t o g a m o r e t a k o t o pau m o o s u m a d e m o g o z a i m a s e n u

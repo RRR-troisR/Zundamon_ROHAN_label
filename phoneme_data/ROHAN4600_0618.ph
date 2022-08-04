@@ -1,0 +1,1 @@
+f u y u r u s U t e N b e r u k u d e pau gy o k a i n o s a r u p I k o N o ts U k u cl t e m i m a sh o o

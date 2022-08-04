@@ -1,0 +1,1 @@
+v a sh i i r i y e s a N pau sh I k o t o i e b a pau d a i hy o o t e k i n a r i k I sh i n o sh o s a d a z e

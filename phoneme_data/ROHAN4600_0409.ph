@@ -1,0 +1,1 @@
+m e g a s a m e t a r a k a m i g a ch i j i r e t e i t e pau r i cl ts i w a z e cl ky o o sh i m a sh I t a

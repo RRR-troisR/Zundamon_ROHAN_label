@@ -1,0 +1,1 @@
+p i cl ts o n i a w a k o o k a k u r u i n i sh o k u m o ts u a r e r u g i i g a a r i pau r i cl sh o k U p a a t i i d e w a k i o k u b a r i m a s U

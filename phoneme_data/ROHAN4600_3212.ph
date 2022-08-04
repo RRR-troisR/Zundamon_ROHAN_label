@@ -1,0 +1,1 @@
+b o k u g a d i r e k U t a a n a r a pau h o k a n o d a r e y o r i m o pau y e d o b a i o y u u s e N sh I t e k a k o i k o m i m a s U y o

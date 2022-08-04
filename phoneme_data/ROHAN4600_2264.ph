@@ -1,0 +1,1 @@
+b a N k u o u n o h a k a r a i n i pau sh i N sh a sh i m a s U

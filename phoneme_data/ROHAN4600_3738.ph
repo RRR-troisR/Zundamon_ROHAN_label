@@ -1,0 +1,1 @@
+ch o b i h i g e d e pau ch u u b o o n o ky a b e ts u o k o N p o o sh I t e r u k a r e g a pau sh i N g o d a

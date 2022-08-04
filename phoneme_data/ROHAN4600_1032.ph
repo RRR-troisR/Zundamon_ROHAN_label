@@ -1,0 +1,1 @@
+p a y a k u a r u N n o g i k o o w a k a m i w a z a d e pau t a o sh I t a ky a n e k u b i o k a k U sh i k a n a s a g e d a w a

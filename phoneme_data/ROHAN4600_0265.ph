@@ -1,0 +1,1 @@
+t u u hy e N b a cl h a n a r a pau k o k o k a r a p u r o p e r a k i n o ch a a t a a g a y a s u a g a r i d a n e

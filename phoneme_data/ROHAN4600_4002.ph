@@ -1,0 +1,1 @@
+ky e o N n o g o t o o w a pau n a N k o o g a i t o z e ts u d e pau k u u k i o s a e g i r i m a s U

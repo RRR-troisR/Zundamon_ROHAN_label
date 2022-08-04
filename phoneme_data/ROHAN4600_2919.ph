@@ -1,0 +1,1 @@
+py e t e r u w a m a cl t a k U ch i i n i k o d a w a r a z u pau gy a b a N t o o m o sh i r o o k a sh i k U s u g o s u m i ch i o e r a b u d a r o o

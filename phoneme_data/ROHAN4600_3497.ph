@@ -1,0 +1,1 @@
+b e a r u ts o cl t o w a pau ty o my u r u r i k u d e sh u u j i o m a n a b i pau k a i sh o d e ty a t o n a N d o m o k a k i m a sh I t a

@@ -1,0 +1,1 @@
+y a m a g u ch i k e N w a k i ch o o k a r a s a i sh U s a r e t a pau m i n e r a r u w o o t a a d e s U

@@ -1,0 +1,1 @@
+my a N m a a t a N t o o n o sh o k u i N g a pau ky o o k a g i r i d e i r e k a w a r i m a sh I t a

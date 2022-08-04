@@ -1,0 +1,1 @@
+k o r e w a pau s U p e r u k u b o g u i n o s o N z o k u n i k a k a r u pau y u y u sh i k i g i g o k u d a r o

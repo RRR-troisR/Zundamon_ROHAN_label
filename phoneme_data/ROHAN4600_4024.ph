@@ -1,0 +1,1 @@
+ty u u d a a ch o o w a pau s o o z e ts u n a b a r a s e N s o o n i k a ch i n u k i m a sh I t a

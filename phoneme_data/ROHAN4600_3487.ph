@@ -1,0 +1,1 @@
+g u e N f o o n o sh a cl k i N w a pau ky a r i i o o b a a d e k u r i k o s a r e t a t a k a r a k u j i n o a t a r i d e pau s o o s a i d e k i m a s U

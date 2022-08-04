@@ -1,0 +1,1 @@
+ky o o j u n o z e m i w a k a cl p a ts u d e pau k o r e k a r a p e r i m e n i n i ts u i t e pau d i b e e t o s u r u

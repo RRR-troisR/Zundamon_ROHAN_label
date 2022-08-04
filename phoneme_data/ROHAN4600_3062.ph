@@ -1,0 +1,1 @@
+a r e k a r a pau sh e d i a cl k u n o ch a y a d e pau dy u g o m i e t o k a N b i n a w a g a sh i o t a r a f U k u t a b e m a sh I t a

@@ -1,0 +1,1 @@
+g e k I k a r a n o f o o g u o o sh o k u sh i pau sh o k u g o m o sh i b a r a k u a s e g a h I k a n a i

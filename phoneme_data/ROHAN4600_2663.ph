@@ -1,0 +1,1 @@
+ry u b u n o n o k a w a w a pau o s e N s a r e t e m a s e N y o

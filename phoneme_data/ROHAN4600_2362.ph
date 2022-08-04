@@ -1,0 +1,1 @@
+k o n o py u n o m o j i d a k e pau k a cl k o d e k a k o m a r e t e r u

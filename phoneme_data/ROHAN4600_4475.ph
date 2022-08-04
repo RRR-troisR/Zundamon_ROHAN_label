@@ -1,0 +1,1 @@
+ky o j i ts u o r i m a z e t a pau g u e N d o r i N n o k a i e N g a h I k a r i m a s U

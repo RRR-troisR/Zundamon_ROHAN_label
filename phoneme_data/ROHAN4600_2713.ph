@@ -1,0 +1,1 @@
+ky a s u w e r u n o g a i r o j u n i pau w a k a b a g a sh i g e r u

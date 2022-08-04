@@ -1,0 +1,1 @@
+t i g u r i ny a g o g a n a g a r e pau d o o y o o sh i m a sh I t a

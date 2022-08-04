@@ -1,0 +1,1 @@
+n a a pau g u o N s a N w a pau g a sh i N sh o o t a N n o o m o i d e pau k o r e m a d e y a cl t e k I t a n o d a g a

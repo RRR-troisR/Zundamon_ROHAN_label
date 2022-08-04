@@ -1,0 +1,1 @@
+k o o r i g a h a r u s a m u s a d a t o pau p e ch i p e ch i t a t a k u d a k e d e h i f u g a h i b i w a r e r u y o

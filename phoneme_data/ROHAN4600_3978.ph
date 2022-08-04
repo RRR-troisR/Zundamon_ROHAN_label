@@ -1,0 +1,1 @@
+n i w a n i w a hy o o t a N o u e y o o t o pau f U t a r i n o i k e N g a g a cl ch i sh I t a

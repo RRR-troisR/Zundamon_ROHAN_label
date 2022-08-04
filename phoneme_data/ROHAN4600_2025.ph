@@ -1,0 +1,1 @@
+ch e j u e n o t a b i n i w a pau j a u d i N m o y o b i m a s U

@@ -1,0 +1,1 @@
+e k i r e e n o n e i r o w a y u i i ts u m u n i d a g a pau i z a k a y a d e w a k a k I k i e t e t o d o k a n u

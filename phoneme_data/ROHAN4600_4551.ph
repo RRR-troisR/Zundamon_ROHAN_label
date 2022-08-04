@@ -1,0 +1,1 @@
+m i d o r i g a o k a t e N m o N d a i d e w a pau k u e e s a a n o s e k I h o o h e N i o k a N s o k u d e k i r u

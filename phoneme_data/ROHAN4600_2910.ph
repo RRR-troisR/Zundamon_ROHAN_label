@@ -1,0 +1,1 @@
+g a i k o k u d e w a r e d i f a a s U t o d a t o p e cl ts i i k a r a k i i t a g a pau w a r i t o z o N z a i n i a ts U k a w a r e t a

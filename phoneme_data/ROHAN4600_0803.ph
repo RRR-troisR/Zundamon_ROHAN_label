@@ -1,0 +1,1 @@
+t a t e j i m a g a r a n o s o f a a d e pau z a g a k u n o b i d e o o sh I ch o o sh I ch a u

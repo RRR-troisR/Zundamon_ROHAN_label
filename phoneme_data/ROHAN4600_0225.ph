@@ -1,0 +1,1 @@
+v o r u py a a n o n o d i n a a w a pau ch i cl p U k o m i d e g o hy a k u y u u r o d e sh I t a

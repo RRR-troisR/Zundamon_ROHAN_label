@@ -1,0 +1,1 @@
+d o r u j e gy e r u p o w a pau k a r a d a n i i w a k a N o o b o e t a

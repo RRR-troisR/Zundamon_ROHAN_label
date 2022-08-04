@@ -1,0 +1,1 @@
+p u r e k u m u ry e k a r a pau g e N p u u s a r e t a n a n i k a g a t o d o i t e m a s U

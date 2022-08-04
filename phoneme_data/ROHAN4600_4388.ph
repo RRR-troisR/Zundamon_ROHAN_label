@@ -1,0 +1,1 @@
+s o N n a k o t o o sh I t a r a pau f e r i p e g a k a n a sh i m u t o w a o m o i m a s e N k a

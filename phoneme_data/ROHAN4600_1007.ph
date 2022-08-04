@@ -1,0 +1,1 @@
+y e my e s a N w a pau m a z u k i i b o o d o k a r a y u b i o h a n a sh I t e m i m a s e N k a

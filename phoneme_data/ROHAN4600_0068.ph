@@ -1,0 +1,1 @@
+f u u d e e n o j i gy o o w a pau a k a j i t o k u r o j i g a g o ch a m a z e d a t o h i sh o g a n a g e k u

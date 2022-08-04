@@ -1,0 +1,1 @@
+j e r u m i ny a a g a d e k a i ky o o t o g e t a pau b e n e d i k u cl ts o N w a pau s e N b o o s a r e r u t o d o o j i n i pau n e t a m a r e m o sh i m a s U

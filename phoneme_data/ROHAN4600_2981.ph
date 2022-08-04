@@ -1,0 +1,1 @@
+p i cl ts o f e cl r a a t o k a r a pau i ky o o n o ch i n i k i t a w e v u g e n i i w a pau h i b i h a ch i j i k a N h a t a r a k u

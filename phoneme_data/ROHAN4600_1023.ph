@@ -1,0 +1,1 @@
+ky u u sh o k u n o k o N b u o t a b e t a dy u ky a n a N g a pau ky o o d o ry o o r i o o m o i d a sh i m a sh I t a

@@ -1,0 +1,1 @@
+sh I k a sh i pau n a i j e r i a n o g e N g o pau n i N g u o m u g o d e w a pau e e ky o o g a u s u m a r u

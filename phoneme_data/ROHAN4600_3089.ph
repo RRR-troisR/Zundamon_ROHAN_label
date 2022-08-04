@@ -1,0 +1,1 @@
+g u k u o z o w a b i m o k U sh u u r e e d e pau s e e k a k u m o k e N ky o d a g a pau hy a k U p a a s e N t o s u k a r e r u w a k e d e w a n a i n o d e s U

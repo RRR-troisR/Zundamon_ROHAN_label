@@ -1,0 +1,1 @@
+k u r o o z e cl t o n o t o b i r a o h i r a k U t o pau ch o o n e k U t a i g a n a r a N d e i t a

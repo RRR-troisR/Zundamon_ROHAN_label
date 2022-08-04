@@ -1,0 +1,1 @@
+t o k o r o d e pau g u r u m e ny u u s u d e u n a j u u n i k i m o s u i g a ts u k U t o m i m a sh I t a g a pau i ch i d o n o m i t a i d e s U

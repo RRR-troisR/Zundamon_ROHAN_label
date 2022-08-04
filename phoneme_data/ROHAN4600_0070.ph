@@ -1,0 +1,1 @@
+k u o o r i i w a f i gy u a s u k e e t o n o h o o p u d e pau t o r i p u r u a k U s e r u g a m i s e b a d a

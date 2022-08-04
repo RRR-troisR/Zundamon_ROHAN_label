@@ -1,0 +1,1 @@
+s a m u r a i g a pau s i r u b a a s a a n i hy o i hy o i i k I k i sh I t e t a t o w a pau a r i e m a s e n u

@@ -1,0 +1,1 @@
+b o k u n o s u m u y a sh I k i k a r a pau g u u u t o b u k i m i n a o t o g a k I k o e r u n o

@@ -1,0 +1,1 @@
+k i N i gy o k u sh o k u n o k u r a sh i w a pau s a m a z a m a n a by o o k i n o h I k i g a n e n i n a r i m a s U y o

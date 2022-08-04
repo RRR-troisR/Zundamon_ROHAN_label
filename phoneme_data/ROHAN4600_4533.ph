@@ -1,0 +1,1 @@
+ty a a n e r i i s a N w a pau t e e ky u u b u sh o z o k u

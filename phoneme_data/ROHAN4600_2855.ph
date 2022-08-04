@@ -1,0 +1,1 @@
+k u i i b i i N t o s o o by o o N o n o s e t a p u r o p e r a k i g a pau m o o j i k i g o b o o n e n i ch a k u r i k U sh i m a s U

@@ -1,0 +1,1 @@
+b i sh o k u k a n o i r u g u o N w a pau t o ry u f u pau ky a b i a pau f o a g u r a n i a k i pau k a cl p u n u u d o r u n i h a m a r u

@@ -1,0 +1,1 @@
+k e N y a k u k a n o v a N p a i a w a pau s u m a i m o k a N s o n a m o n o d a

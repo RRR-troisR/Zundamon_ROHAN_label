@@ -1,0 +1,1 @@
+j u u i ch i g a ts u m u i k a n i pau f a i t o m a n e e g a f u r i k o m a r e t a

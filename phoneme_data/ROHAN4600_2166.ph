@@ -1,0 +1,1 @@
+j i r a i t e cl ky o w a g e k i m u d e pau ts e p o w a a s e d a k u d a

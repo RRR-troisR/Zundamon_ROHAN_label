@@ -1,0 +1,1 @@
+d u r u ky e v i ch i w a pau n e ts u d e u n a s a r e r u w a g a k o o u m a n i n o s e pau f u b u k i n o n a k a by o o i N n i m u k a i m a s U

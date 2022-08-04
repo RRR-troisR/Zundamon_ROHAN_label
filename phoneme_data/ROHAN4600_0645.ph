@@ -1,0 +1,1 @@
+k e cl ky o k u ts u a i w a pau n i j u u h a cl p o N n o h a d e pau ky o d a i n a ch e r i i o k a m e m a sh I t a cl k e

@@ -1,0 +1,1 @@
+y e u h e N g a b o ts u z e N t o pau s e k i o t a cl t a r o

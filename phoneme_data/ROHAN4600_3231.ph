@@ -1,0 +1,1 @@
+p e t u ry u u r a t o d u n u e g a sh i k a o ts U k u r i pau t a g a i n o u ts U k u sh i s a o ky o o s o o sh I t e i m a s U

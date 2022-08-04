@@ -1,0 +1,1 @@
+k a N s a N t o sh I t a p a r i n o m a ch i o pau t U k u t U k u d e h a sh i r i m a w a cl t a

@@ -1,0 +1,1 @@
+n o m i s u g i d e h e b e r e k e n i n a r i pau t e r e r u b i N ch e N ts o o pau f a N g a t o r i k a k o m u

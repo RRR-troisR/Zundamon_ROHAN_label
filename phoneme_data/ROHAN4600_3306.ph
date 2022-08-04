@@ -1,0 +1,1 @@
+f a N d i ny o w a pau a k U sh i ts u n a ry o k a k U k a r a n o k u r e e m u n i n a y a m a s a r e pau k a e r i n i t o i r e d e n a i t a

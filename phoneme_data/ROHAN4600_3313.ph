@@ -1,0 +1,1 @@
+sh o o g i n o f u w a s a i j a k U t o hy o o s a r e r u g a pau k a m i n o i cl t e w a k o m a n o sh u r u i o e r a b a z u by o o d o o d e a r u

@@ -1,0 +1,1 @@
+w a sh i w a s e z o k u n i w a u t o k u pau hy u v a r i n e N n a d o w a sh i r a n u y o

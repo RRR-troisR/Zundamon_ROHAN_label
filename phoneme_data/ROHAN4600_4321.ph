@@ -1,0 +1,1 @@
+ch a i ty a w a pau b o k u g a k a y o cl t e i r u pau f e N sh i N g u ky o o sh I ts u n o sh i h a N d a

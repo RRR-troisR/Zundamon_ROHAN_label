@@ -1,0 +1,1 @@
+k u r e s U ty a N w a pau n o b u r e s u o b u r i i j u g a k i z o k u n o g i m u d a t o s U p i i ch i sh I t a

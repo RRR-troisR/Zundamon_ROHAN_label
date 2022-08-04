@@ -1,0 +1,1 @@
+w e w e t e n a N g o d e pau n a N by o o n i n a y a m a s a r e m a s U

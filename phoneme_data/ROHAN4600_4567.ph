@@ -1,0 +1,1 @@
+hy u u m a n i z u m u t o w a pau d a s e e d e ts u z u k u m i r a i o pau m i z u k a r a n o i sh i d e k a e t e i k U k o t o d a

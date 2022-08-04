@@ -1,0 +1,1 @@
+s e k a i o y u r u g a s u m o n o t o sh I t e pau k o j e d o u u b u g a t e r e b i n o b a r a e t i n i d e t e r u y o

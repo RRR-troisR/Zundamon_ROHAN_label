@@ -1,0 +1,1 @@
+b e r i b o o w a pau a r a f o o n o g o g e N o s a g u r u

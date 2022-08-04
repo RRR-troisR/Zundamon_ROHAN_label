@@ -1,0 +1,1 @@
+sh i b a r a k U p e r e my o o t o n o e n o ch i k a n i m o g u r u g a pau h I t o r i d e d a i j o o b u d a r o

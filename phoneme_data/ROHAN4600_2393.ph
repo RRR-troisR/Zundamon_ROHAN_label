@@ -1,0 +1,1 @@
+w e cl ts e r u o e g a k U t a m e pau e n o g u o t o k u

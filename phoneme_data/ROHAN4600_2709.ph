@@ -1,0 +1,1 @@
+y e k e n o k I k o n a sh i w a o sh a r e d e pau k a ts U s a N k o o n i n a cl t a

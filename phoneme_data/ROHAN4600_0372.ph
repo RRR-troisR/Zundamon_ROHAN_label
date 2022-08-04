@@ -1,0 +1,1 @@
+y u t o o y o m i n o k o t o b a n a r a pau a m a g u y a y u ch a g a pau p a cl t o u k a b i m a sh I t a

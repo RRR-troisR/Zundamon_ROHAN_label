@@ -1,0 +1,1 @@
+p u r u u b e w a o s e r o d e pau i t o t e k i n i y o s u m i o t o r a s e k a i sh o o s u r u pau h a n a r e w a z a d e ts u y o s a o m i s e ts U k e t a

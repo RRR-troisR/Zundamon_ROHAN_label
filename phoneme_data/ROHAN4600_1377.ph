@@ -1,0 +1,1 @@
+k a my u z a t o ch e r u v i g a t o cl p u o s e r u g a pau g e N j o o w a h o b o g o k a k u d a n a

@@ -1,0 +1,1 @@
+my e r u N n i w a pau dy u b o w a n o sh o o z o o g a g a pau i m a m o m a ts u r a r e t e i m a s U

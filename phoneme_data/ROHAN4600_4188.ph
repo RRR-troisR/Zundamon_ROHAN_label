@@ -1,0 +1,1 @@
+f i r a m e N t o w a b o o s e k i i t o n o i cl sh u d e pau n a g a i s e N i k a r a u m a r e t a

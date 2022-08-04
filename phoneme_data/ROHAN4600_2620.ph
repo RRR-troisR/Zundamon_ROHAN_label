@@ -1,0 +1,1 @@
+t e r u m o py u r e g a k a i m e ts u sh I t a cl t e pau d e m a d e s U y o n e

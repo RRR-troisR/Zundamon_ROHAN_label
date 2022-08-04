@@ -1,0 +1,1 @@
+ch o cl t o o j o o s a N pau s U p u u N t o f o o k u n o k i n o o o ry o o r i ts u sh I t a pau s U p o o k u g a o k a i d o k u d e s U y o

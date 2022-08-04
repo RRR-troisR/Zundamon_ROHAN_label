@@ -1,0 +1,1 @@
+n e k o g a m i z o n i o ch i pau my a a my a a t a s U k e o m o t o m e t e m a s U

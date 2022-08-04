@@ -1,0 +1,1 @@
+t u a r e g u ky u N pau t e ts u b o o w a s a k a t e n o h o o g a y a r i y a s u i t o o m o u y o

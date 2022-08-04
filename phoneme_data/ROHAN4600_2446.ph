@@ -1,0 +1,1 @@
+s u p i cl hy a a g a pau t e e sh o k u o e m a sh I t a

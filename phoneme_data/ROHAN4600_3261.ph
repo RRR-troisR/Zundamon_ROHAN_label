@@ -1,0 +1,1 @@
+t u e n i d a s u n a r a pau o hy o o n o k o N b u j i m e y o r i pau w a s a b i t o sh o o y u n o k u m i a w a s e g a b e s U t o t o o m o i m a s U

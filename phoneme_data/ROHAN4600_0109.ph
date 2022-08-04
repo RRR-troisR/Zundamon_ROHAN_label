@@ -1,0 +1,1 @@
+g u cl k u a s a N pau p a i k u u my e N o ts u y o b i d e k o g a sh i ch a d a m e d a z o

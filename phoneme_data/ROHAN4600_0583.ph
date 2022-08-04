@@ -1,0 +1,1 @@
+by u u k e r u s u w a d a r e k a r a m o s u k a r e r u g a pau y a y a o t o n a g e n a i t o k o r o g a a r u

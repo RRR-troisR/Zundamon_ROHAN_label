@@ -1,0 +1,1 @@
+j o r u j e k a r a y u z u r i u k e t a j a N p a a n i pau t o ry o o g a f U ch a k u sh I ch a cl t a

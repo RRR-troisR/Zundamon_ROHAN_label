@@ -1,0 +1,1 @@
+t e n u k i o a r a t a m e pau ky u ky u cl t o n a r u m a d e sh o cl k i o m i g a k u y o o n i

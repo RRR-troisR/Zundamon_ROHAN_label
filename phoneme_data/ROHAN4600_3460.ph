@@ -1,0 +1,1 @@
+k i p u r o s u n o gy o k o o n i pau n a N p a sh I k a k e t a dy u p o N n o gy o s e N g a pau ky u u e N o m o t o m e y a cl t e k i m a sh I t a

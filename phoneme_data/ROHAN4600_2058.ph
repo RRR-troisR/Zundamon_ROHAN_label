@@ -1,0 +1,1 @@
+s a k u r a n o sh I t a d e pau n e b i r u t o h a n a m i sh I t a i d e s U n e

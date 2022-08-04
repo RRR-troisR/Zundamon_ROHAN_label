@@ -1,0 +1,1 @@
+n i g a ts u n o sh i a i d e z a b i e w o n i k a cl t a a k a ts U k i n i w a pau d i f e N d i N g u ch a N p i o N t o sh I t e m u h a i o ts u r a n u k u

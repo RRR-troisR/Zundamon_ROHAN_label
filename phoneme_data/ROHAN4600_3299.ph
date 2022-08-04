@@ -1,0 +1,1 @@
+hy u u b i i g a k u r a i y o m i ch i o f u r a f u r a a r u k i pau s o n o g o sh o o s o k u g a t o d a e t e sh i m a i m a sh I t a

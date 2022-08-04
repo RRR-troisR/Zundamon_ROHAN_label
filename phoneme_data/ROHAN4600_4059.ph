@@ -1,0 +1,1 @@
+t a k a d a n o b a b a n i y o o g a a r u n o d e pau ts u i d e n i m a n o o my e n i y o r i m a s U

@@ -1,0 +1,1 @@
+sh i z u k a n i f u r i ts u m o r u y u k i n o n a k a pau k u e r a g o b e g a p e r o p e r o ky a N d i o n a m e t e m a s U

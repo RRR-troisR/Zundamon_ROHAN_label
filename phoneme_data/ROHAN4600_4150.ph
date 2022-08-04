@@ -1,0 +1,1 @@
+sh i n a s o b a o t a b e t a i d a k e n i pau a N n a n i i s o g u t o w a j o o n e ts u t e k i d a

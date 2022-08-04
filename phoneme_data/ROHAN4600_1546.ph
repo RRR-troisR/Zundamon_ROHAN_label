@@ -1,0 +1,1 @@
+k o n o s u i i p a a d e pau s e m a i b a sh o n o h o k o r i o t o r u y u e ts u n i h I t a r u

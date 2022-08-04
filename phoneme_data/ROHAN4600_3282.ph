@@ -1,0 +1,1 @@
+ts e ts i i r i e w a pau m i k o sh i o i s a m a sh i k U f u r u k o t o d e pau k a m i g a y o r o k o b u t o sh i N j i t e m a s U

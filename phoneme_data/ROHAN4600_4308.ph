@@ -1,0 +1,1 @@
+d o y o o w a ch i i t o d i d a k a r a pau ky o o n o t o r e e n i N g u w a g a N b a r u z o

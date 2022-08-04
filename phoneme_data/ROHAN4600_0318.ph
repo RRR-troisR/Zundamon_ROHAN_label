@@ -1,0 +1,1 @@
+g u i ch a N d u u t o w a pau k e e by a k u g a w a k a r a z u t o m a d o cl t a

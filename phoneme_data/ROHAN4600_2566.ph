@@ -1,0 +1,1 @@
+w e r u ch i n o y u u sh i n i pau p o s U ch u u g a k a N g e k i sh I t a

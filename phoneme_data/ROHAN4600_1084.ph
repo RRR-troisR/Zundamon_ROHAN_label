@@ -1,0 +1,1 @@
+ty u u k u s u b a r i i w a pau g o t e N t o y o b u b e k i r i cl p a n a i e o sh o y u u sh I t e m a s U

@@ -1,0 +1,1 @@
+y o r u d a N n o ry o o r i n i N y o sh u a w a pau a r a y u r u t e N k a b u ts u o ts U k a w a n u sh u g i d a

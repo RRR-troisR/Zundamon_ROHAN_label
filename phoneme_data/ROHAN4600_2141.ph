@@ -1,0 +1,1 @@
+a k u gy a k u m u d o o n o g u u o g u f u n i pau ky o cl k e e o n o z o m u

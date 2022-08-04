@@ -1,0 +1,1 @@
+h e r u b i cl h I t o ch a N p o o r i n o k e cl s o k u w a k a t a k u pau n a N p i t o m o k u d a k e n u d a r o o

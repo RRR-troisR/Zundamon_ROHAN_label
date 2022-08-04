@@ -1,0 +1,1 @@
+s o n o p o sh a cl t a k a k o n o f i r u m u o pau n a g o r i o sh i m u m a e n i ch o N g i ry a i i

@@ -1,0 +1,1 @@
+j u gy o o ry o o n o t a i n o o g a ts u z u k u n a r a pau sh u m a i hy e r u w a pau s o ts u gy o o g a a y a b u m a r e r u i z e N n i j o s e k i d a z e

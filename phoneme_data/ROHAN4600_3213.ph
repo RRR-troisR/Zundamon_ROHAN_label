@@ -1,0 +1,1 @@
+a N gy u r o n o b o o g e N w a pau t o o sh o b u ts u g i o k a m o sh I t a g a pau s u u n e N g o m u sh i r o k a b u o a g e m a sh I t a

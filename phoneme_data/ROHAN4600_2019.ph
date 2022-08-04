@@ -1,0 +1,1 @@
+ch u u s o ts u g o pau gy a r i cl k u w a k a w a r i m a sh I t a

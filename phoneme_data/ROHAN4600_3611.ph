@@ -1,0 +1,1 @@
+r o k u j u cl p u N g o pau k a N j a g a k o o b e n o h e r i p o o t o n i pau t o o ch a k U sh i m a sh I t a

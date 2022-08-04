@@ -1,0 +1,1 @@
+hy u u m u g a t a i t a k o m e o pau h e e z e N t o h e r u b e r u g a a g a t a b e r u

@@ -1,0 +1,1 @@
+ts u m a r i pau d o by u cl sh i i n o ky o k u w a pau k a N p e k i n a a a t o d e s U

@@ -1,0 +1,1 @@
+f o r i ny a a n o n o by o o i N d e pau k o o t o o g a i t a m u t o ts U t a e t a r a pau f a i b a a s U k o o p u d e k e N s a s a r e m a sh I t a

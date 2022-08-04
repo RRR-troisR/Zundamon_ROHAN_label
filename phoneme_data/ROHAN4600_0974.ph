@@ -1,0 +1,1 @@
+k o g o e s o o n a f u b u k i n o n a k a pau j o b a a ny a w a s e k i y u o m o t o m e pau t o b i d a sh I t a

@@ -1,0 +1,1 @@
+i e n o y o j o o k i N w a s U k u n a i g a pau hy a k u d o r u t e e d o w a a ts u m a r u d a r o

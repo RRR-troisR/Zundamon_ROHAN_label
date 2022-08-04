@@ -1,0 +1,1 @@
+s i i d i i t o y o N d a k u r a i d e pau s a g e s u m a r e t e i i t o o m o i m a s U k a

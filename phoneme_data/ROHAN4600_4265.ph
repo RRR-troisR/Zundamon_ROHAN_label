@@ -1,0 +1,1 @@
+p a p u a ny u u g i n i a n i a r u n i g o cl t a m i z u u m i n i w a pau r a i gy o g a i m a s U

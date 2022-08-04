@@ -1,0 +1,1 @@
+h i r u y a s u m i n i k a m a m e sh i o k u cl t a r a pau b a b a n u k i o y a r u z o

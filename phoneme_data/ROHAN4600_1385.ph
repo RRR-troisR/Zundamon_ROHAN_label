@@ -1,0 +1,1 @@
+ch o i t o z e sh I k a s a N pau sh I h i d e gy o o m u s u r u n o n i n a r e r u t o pau a t o g a k o w a i z o

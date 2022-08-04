@@ -1,0 +1,1 @@
+k a b u k i w a s a j i k i s e k i d e m i r u n o g a d a i g o m i t o pau ky o N gy a a g a y o y a k u sh I t a

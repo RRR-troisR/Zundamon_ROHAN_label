@@ -1,0 +1,1 @@
+a r u ty u r u s a m a pau n a ts u i N s u r u n i w a pau i N k a N t o sh u n i k u g a h I ts u y o o d e s U y o

@@ -1,0 +1,1 @@
+f u m u pau p u r a s U k o o v i y a o ts u b u s U t o w a pau o d a y a k a j a n a i d e s U n a

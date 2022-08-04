@@ -1,0 +1,1 @@
+k o o t o o s e ts u j o d e s e e t a i o u sh i n a cl t a a j e d a g a pau o N s e e g o o s e e d e j i b u N n o k o e o d a s e m a s U

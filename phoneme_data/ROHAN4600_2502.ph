@@ -1,0 +1,1 @@
+t a N r e N g a pau ky e e z a o t a k a m i n i i z a n a u

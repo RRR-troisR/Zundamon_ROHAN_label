@@ -1,0 +1,1 @@
+f i dy u u sh a r i i dy u u t i i n o s e ts u m e e o u k e t a

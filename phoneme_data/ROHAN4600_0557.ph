@@ -1,0 +1,1 @@
+a k a t a i t o i u sh u r u i g a a r i pau b i s a u n i w a sh U t o k U sh a m o j i ts u z a i s u r u z e

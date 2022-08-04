@@ -1,0 +1,1 @@
+k o k u n a i t o cl p u sh e a o h o k o r u h e e sh a n o t o r a k U t a a n i pau t a g a y a s e n a i t a h a t a w a n a i

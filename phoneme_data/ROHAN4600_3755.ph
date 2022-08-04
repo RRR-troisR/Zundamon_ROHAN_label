@@ -1,0 +1,1 @@
+m a s e m a t I k a j o o d e f i cl t i N g u s a s e pau ky u u b a N n o ch I k a r a o sh i r a b e r u

@@ -1,0 +1,1 @@
+o w a b i o k a n e t e pau sh o k u j i n i sh o o t a i i t a sh i m a s U

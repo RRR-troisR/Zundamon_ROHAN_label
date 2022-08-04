@@ -1,0 +1,1 @@
+ch i i k i o u ts u cl t e k a r a pau o hy a k u d o m a i r i s u r u j i N j a g a k a w a r i m a sh I t a

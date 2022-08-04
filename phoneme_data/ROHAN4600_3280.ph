@@ -1,0 +1,1 @@
+b o k u w a pau d i o d e e pau d o o dy o pau ch a o ty a t o i u k U s e g a a r i m a s U g a pau d e k i r u d a k e i w a n a i y o o ts U t o m e m a s U

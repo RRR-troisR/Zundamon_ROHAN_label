@@ -1,0 +1,1 @@
+g u e r i N w a p o j i t i b u d a g a pau j a m a s a r e k u y a sh i i o m o i m o sh I t e r u

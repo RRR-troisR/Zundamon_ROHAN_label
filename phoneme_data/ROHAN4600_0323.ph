@@ -1,0 +1,1 @@
+g u a n a f a t o d e ch i ts u j o o m u sh i sh I t a r a y a b a i y o pau g u a N gy u

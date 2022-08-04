@@ -1,0 +1,1 @@
+g u e N s a N t o s e e k u r a b e n a N t e pau a t a k U sh i g a m a k e r u n i k i m a cl t e i m a s U

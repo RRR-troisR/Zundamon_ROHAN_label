@@ -1,0 +1,1 @@
+hy o cl t o sh I t e g i d i i n i w a pau n i o o d a ch I t o j o j o d a ch i o k u b e ts u d e k i n a i n o k a

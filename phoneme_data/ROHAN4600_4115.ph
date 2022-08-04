@@ -1,0 +1,1 @@
+k u u r u t i u s u s a N w a g a i k o k u j i N d a g a pau k u m e t o i u y o m i k a t a o sh i cl t e i r u

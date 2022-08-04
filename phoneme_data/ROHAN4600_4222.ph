@@ -1,0 +1,1 @@
+h a r u n i n a r u t o py e p u sh u w a pau s e e t e N n o sh I t a d e o h i r u n e o sh i m a s U

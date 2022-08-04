@@ -1,0 +1,1 @@
+y e n u u f a n o w o cl sh a b u r u s u u ts u w a y a s u m o n o d e pau s u g u k e b a d a ch i b o r o b o r o n i n a r u d a r o o

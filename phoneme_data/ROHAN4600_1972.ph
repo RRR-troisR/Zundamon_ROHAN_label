@@ -1,0 +1,1 @@
+s a py e h a w a s a m u k e d e z o k u z o k u sh I t e i t a g a pau r i ch i g i n i n i cl k a o k o n a s u

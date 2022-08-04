@@ -1,0 +1,1 @@
+k U s a k a g e n i k a k U sh i t a s a N ky a k u n i ky a m e r a o s e cl ch I sh i pau s U k o r u ts e n i i n o m i cl k a i a i t e o s a g u r i d a s u

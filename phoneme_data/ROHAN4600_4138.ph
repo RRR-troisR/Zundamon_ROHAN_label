@@ -1,0 +1,1 @@
+g u N t a i p o r o n e e z u w a f o r u t e k a r a h a j i m a r i pau i s a m a sh i s a g a ts U t a w a cl t e k u r u

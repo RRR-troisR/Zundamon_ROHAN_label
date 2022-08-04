@@ -1,0 +1,1 @@
+ky u u sh i sh I t a p i cl ts a sh o k u n i N o t o m u r a u t a m e pau r e k u i e m u o s a s a g u

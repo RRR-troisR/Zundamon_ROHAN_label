@@ -1,0 +1,1 @@
+gy u r u v i cl ch i w a pau sh a h e N t o k a k u d o k a r a pau z o o k e e n o u ts U k u sh i s a o ch I k a k u d e k i r u

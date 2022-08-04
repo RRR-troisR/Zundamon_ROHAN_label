@@ -1,0 +1,1 @@
+o o t o ky u i j i i n u o ts U k u r i t a i g a pau g u z a i g a t a r i n a i n a

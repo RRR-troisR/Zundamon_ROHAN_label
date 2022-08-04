@@ -1,0 +1,1 @@
+k o n o t i i sh a ts u n o k i j i w a k o o ky u u d e pau h a k u r a i m o n o d a t o k i i t a

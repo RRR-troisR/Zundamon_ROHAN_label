@@ -1,0 +1,1 @@
+sh e N k i e w i cl ts u w a pau f o o k a a d o n i ch i cl p u o z e N b u k a k e t a

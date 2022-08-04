@@ -1,0 +1,1 @@
+ts o N k a p a w a pau r e cl ky o s a r e t a ky o o z a i k a r a pau k a ky o n i k a N s u r u m o n o o e r a b u d e sh o o

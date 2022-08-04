@@ -1,0 +1,1 @@
+p a v u r u sh I k i e v i ch i w a pau i ch i d o n a i t a t o o k e N w a n i d o t o t a t a k a e n u t o pau y u s a b u r i o k a k e t e m a s U n e

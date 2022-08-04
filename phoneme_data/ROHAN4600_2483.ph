@@ -1,0 +1,1 @@
+a k u i n a s u w a sh u y o o o t e k I sh u ts U sh i m a sh I t a

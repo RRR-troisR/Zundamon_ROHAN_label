@@ -1,0 +1,1 @@
+z a N t e e t o sh I t e pau a a t I s u t o w a k u w a k u u d u N d e

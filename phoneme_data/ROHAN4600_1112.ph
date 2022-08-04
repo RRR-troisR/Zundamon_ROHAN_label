@@ -1,0 +1,1 @@
+sh i g u r u by e r u N s o N n o n i cl k a w a pau p o o k U s u p e a r i b u o t a b e r u k o t o d a

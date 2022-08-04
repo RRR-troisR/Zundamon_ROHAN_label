@@ -1,0 +1,1 @@
+o m i g o r o m o o o k i t a d i o ny u s o s u g a pau o m o cl t a y o r i m o h a m a cl t e t a n a

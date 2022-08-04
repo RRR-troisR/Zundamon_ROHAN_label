@@ -1,0 +1,1 @@
+k u u t u a h a k a s e n o gy a r a w a pau z e r o g a h I t o ts u o o i

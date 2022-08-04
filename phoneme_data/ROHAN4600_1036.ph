@@ -1,0 +1,1 @@
+d u r o o r u w a pau d u n i y a n o sh i m a i g a d a r e k a pau ts U k i t o m e t e m a s e N n e

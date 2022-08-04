@@ -1,0 +1,1 @@
+n i k i b i g a sh i N p a i n a k u z u n e ts o w a w a pau h i f u k a o y o y a k u sh I t a

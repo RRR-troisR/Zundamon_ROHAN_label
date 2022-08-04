@@ -1,0 +1,1 @@
+r a N p a k u n i k o d a w a cl t a h e r u sh i i n a m e ny u u d e s U n e

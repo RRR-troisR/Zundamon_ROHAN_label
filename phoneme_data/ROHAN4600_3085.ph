@@ -1,0 +1,1 @@
+b o r e s u w a v u v u n a w a sh I k o o ry o k u g a o t o r o e pau gy e k e r e sh u g a i ch i j i t e k i n i k a i g o sh I t e i m a s U

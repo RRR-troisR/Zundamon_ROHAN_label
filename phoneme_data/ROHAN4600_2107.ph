@@ -1,0 +1,1 @@
+d u b i N gy e i n o gy o o s e e n i pau i k i d o o r u

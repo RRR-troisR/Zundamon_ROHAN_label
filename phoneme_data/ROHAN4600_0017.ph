@@ -1,0 +1,1 @@
+t i m o sh i i g a h e k I ch i k a r a m o d o r i pau h I s a sh i b u r i n i k a r u p a cl ch o t o a e t a

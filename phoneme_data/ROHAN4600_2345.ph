@@ -1,0 +1,1 @@
+j a a n a r i s U t o n o w i d u k i N t o g a pau b a cl sh i sh I t a

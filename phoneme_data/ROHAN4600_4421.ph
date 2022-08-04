@@ -1,0 +1,1 @@
+d e N ch i d e u g o k a s u pau k u o o ts u d o k e i n o h o o g a y o k u n a i d e s U k a

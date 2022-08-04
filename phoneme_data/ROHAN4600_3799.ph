@@ -1,0 +1,1 @@
+k U ch i g e N k a n o h o k o o o s a m e t e pau k a t e e ry o o r i pau sh u u f a r u sh i o t a b e r u

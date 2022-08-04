@@ -1,0 +1,1 @@
+g u r u u n e w e e g e N w a pau sh u j u ts u m a e n i m a s u i o u t a r e pau j u ts u g o m o i sh I k i g a m o o r o o t o sh I t e m a s U

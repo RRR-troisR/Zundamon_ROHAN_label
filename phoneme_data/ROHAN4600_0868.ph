@@ -1,0 +1,1 @@
+k o k o d e k a k U h o s u r u t a m e pau n u u r u d i n u n o b i z a o ch e cl k u sh I t e k u d a s a i

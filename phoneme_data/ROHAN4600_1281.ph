@@ -1,0 +1,1 @@
+j e r u v e w a pau g o hy a k u by o o d e j a N g u r u n o ch o o s a o pau s a i t e e g e N s u m a s e m a sh I t a

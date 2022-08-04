@@ -1,0 +1,1 @@
+b o b e cl ts o d e k o r o N d e k a r a pau s e b o n e g a i t a m i y u b i m o sh i b i r e t e y o w a cl t e r u y o

@@ -1,0 +1,1 @@
+w i d o w i d o d e g e s u i g a n i o i pau gy o cl t o sh i m a sh I t a

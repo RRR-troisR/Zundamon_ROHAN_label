@@ -1,0 +1,1 @@
+k o n o k a ch u u sh a o s o o b i s u r e b a pau i b a r a n o m i ch i d e m o d a m e e j i o k a i h i d e k i m a s U

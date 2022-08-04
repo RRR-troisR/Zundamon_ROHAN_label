@@ -1,0 +1,1 @@
+d a n a hy u u n o sh a t e e g a pau w o sh i cl k i i o o b i y a k a s u

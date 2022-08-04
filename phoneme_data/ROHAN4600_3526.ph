@@ -1,0 +1,1 @@
+k o n o r i z o o t o ch i w a sh i r u k u o sh i d e pau k e N sh I k a r a o r i m o n o o ts U k u r u k o o t e e m a d e k e N b u ts u d e k i r u

@@ -1,0 +1,1 @@
+hy u u w e r u w a h a cl p o o f u s a g a r i d a cl t a g a pau a k u m a t e k I k i sh u d e k a ts u r o o m i i d a sh I t a

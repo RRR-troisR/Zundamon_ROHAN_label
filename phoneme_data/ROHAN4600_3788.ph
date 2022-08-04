@@ -1,0 +1,1 @@
+b o s u n i a pau h e r u ts e g o b i n a m a d e m u k a u f u n e o pau h a t o b a k a r a m i t o d o k e r u

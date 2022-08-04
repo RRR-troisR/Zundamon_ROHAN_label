@@ -1,0 +1,1 @@
+k u i e t o u s u s a k u n o p i ny a k o r a a d a w a pau j i ts u n i j i m i n i t o m u a j i w a i d a cl t a

@@ -1,0 +1,1 @@
+w e g u n a a g a sh a ch o o n o j o s e e n i n a r e b a pau n e t a m a r e r u n o m o m u b e n a r u k a n a t o

@@ -1,0 +1,1 @@
+j u r i w a pau k u r a u d i a o gy u cl t o d a k I sh i m e pau n a k I s a k e N d e y u r u sh i o k o u t a

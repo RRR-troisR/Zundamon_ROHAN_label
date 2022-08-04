@@ -1,0 +1,1 @@
+k a N py o o n e o sh o o k a i s u r u j a a n a r u w a pau s u d e n i z a N b u k i N sh o o d e s U

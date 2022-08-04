@@ -1,0 +1,1 @@
+f u r u j a N s u g a pau b u k a o h I k i i t e n o m i y a o n e r i a r u k u

@@ -1,0 +1,1 @@
+p u r u i ny o o d e n o N d a ch e r i i j u u s u pau j i ts u n i b i m i d e sh I t a

@@ -1,0 +1,1 @@
+k i z u i r u t e p a d e o k a sh I t a ts u m i d e m o pau b o k o k u d e sh o b a ts U s a r e r u n o w a a t a r i m a e y o

@@ -1,0 +1,1 @@
+y e r a b i cl ch i n i k a r u p a cl ch o o w a t a sh I t e k u d a s a i

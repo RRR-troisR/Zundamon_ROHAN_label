@@ -1,0 +1,1 @@
+o cl sh a r u k o t o w a w a k a r u k e d o pau k o n o e r i a w a b i ry a k a n i y a s u n o k a N k a ts u g a i n a n o d a y o

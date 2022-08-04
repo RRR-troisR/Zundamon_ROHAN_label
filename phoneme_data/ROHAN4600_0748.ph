@@ -1,0 +1,1 @@
+ts o g u g e r e r u w a pau g e N sh U k u n a g i sh I k i o h o o ch i sh I t a y a ts u r a g a pau y u r u s e n u y o o d a

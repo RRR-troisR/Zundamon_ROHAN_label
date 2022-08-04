@@ -1,0 +1,1 @@
+gy u cl t o n i g i cl t e n a g e r e b a pau b o o r u w a h a z u m u n o

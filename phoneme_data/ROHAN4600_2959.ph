@@ -1,0 +1,1 @@
+v a t o r o s u r a b u g a ch I k u j i m e e r u o o k u cl t e k u r u n o d e pau e d o w i N w a sh i cl p a i s e z u n i s u m u

@@ -1,0 +1,1 @@
+sh U p a r a a g a a ts u m e r u p i i n a ts u b a t a a w a pau s a N ch i g a s a m a z a m a d e s U

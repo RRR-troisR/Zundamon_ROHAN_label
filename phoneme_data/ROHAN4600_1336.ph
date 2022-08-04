@@ -1,0 +1,1 @@
+b u k a o sh I t a g a e t e pau my u u j i a m u n o sh I s a ts u o sh I t e k i t a m a e

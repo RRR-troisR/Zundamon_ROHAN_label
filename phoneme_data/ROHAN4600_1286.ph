@@ -1,0 +1,1 @@
+b u r o z o b i cl ch i g a h o d o h o d o d e t e o h I k u n a r a b a pau k o n o k e N w a o w a r i d e s U k a n a

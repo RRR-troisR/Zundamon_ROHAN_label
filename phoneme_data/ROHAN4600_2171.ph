@@ -1,0 +1,1 @@
+a m a gy o gy o o o pau b a k a y e w a e N j o sh I t e i r u

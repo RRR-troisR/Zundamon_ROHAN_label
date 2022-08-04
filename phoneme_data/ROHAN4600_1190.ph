@@ -1,0 +1,1 @@
+v a v u r i n e cl k u w a b u N s e k I k e cl k a o m i t e pau o z o k e g a t o m a r a n a i

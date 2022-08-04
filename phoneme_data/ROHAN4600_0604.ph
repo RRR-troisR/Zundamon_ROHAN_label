@@ -1,0 +1,1 @@
+s e e ky u u sh o n i sh a m e e o k a k i w a s u r e t a h i m i ts u pau b a k u r o sh I ch a i m a sh o o k a

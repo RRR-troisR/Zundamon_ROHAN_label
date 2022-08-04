@@ -1,0 +1,1 @@
+d a r e m o g a k I k u z e ts u my o o n a n e i r o pau u u r i cl ts a a n o g o sh o o k a i d e s U

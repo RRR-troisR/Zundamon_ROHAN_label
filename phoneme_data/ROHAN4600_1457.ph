@@ -1,0 +1,1 @@
+g u e N d o r i N w a ch i N a g e k o o sh o o k e cl k a o pau sh o o ry a k u sh I t e y o m i m a sh I t a

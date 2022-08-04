@@ -1,0 +1,1 @@
+w o o p u n o d o k U s a i d e k u n i g a y u g a m u t o w a pau y u m e y u m e a r u m a j i k I k o t o d e a r u

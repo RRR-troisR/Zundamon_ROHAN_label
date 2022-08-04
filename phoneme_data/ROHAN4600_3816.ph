@@ -1,0 +1,1 @@
+ty a a t o k i a i o i r e t e pau k i b a o m u i t a r a i o N n i t o b i k a k a r i m a sh I t a

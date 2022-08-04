@@ -1,0 +1,1 @@
+g i m a ry a N i s u w a j i k e e r e ts U k a i s e k i g a t o k u i d e pau k a b u d e m o y a r e b a b i r i o n e a n i n a r e s o o d a

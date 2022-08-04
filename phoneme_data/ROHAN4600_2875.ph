@@ -1,0 +1,1 @@
+sh e r u b e cl j i a w a pau r a s U t o i ch i n i ch i o by o o k e ts U sh i pau k a i k i N sh o o o n o g a sh I t e sh i m a i m a sh I t a

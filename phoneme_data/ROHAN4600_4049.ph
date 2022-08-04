@@ -1,0 +1,1 @@
+dy a k o o o n o pau dy a k o t o w o o pau w a k a ch i t e h a ts u o N s u r u n o d e s U k a

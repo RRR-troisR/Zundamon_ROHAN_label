@@ -1,0 +1,1 @@
+r a s u pau a r u g e t i t o pau r a s a r u h a g u e w a pau t a i sh o o t e k i n a a r u f a s e e d e a r u

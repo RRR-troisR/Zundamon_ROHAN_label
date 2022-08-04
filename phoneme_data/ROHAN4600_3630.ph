@@ -1,0 +1,1 @@
+s o o a t a r i k o o g e k i n i s o n a e pau my a k u r a k u n o n a i p a s u w a a d o n i sh i m a s U

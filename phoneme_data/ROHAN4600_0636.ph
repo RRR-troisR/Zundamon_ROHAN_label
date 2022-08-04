@@ -1,0 +1,1 @@
+ry e p u r u n o my o o a N n i y o r i pau p u r o j e k U t o o o e r u k o t o g a d e k i m a sh I t a

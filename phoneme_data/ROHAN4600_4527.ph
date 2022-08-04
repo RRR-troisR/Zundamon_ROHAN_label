@@ -1,0 +1,1 @@
+t e N j e e o sh i b a r u j o o k e N k a r a pau k I s e k i w a h o o b u ts U s e N o n a s u

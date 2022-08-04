@@ -1,0 +1,1 @@
+p i ny e i r o n o sh a g e k i g a a t a cl t a r a pau t o ry u f u d e m o o g o cl t e k u d a s a i y o

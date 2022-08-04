@@ -1,0 +1,1 @@
+j o s e cl f i n o f U t e g i w a n a r a pau k a i g i d e h a k a r u k o t o n i sh I t e k u r e

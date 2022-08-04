@@ -1,0 +1,1 @@
+m i g a k U k o t o w a d e k i r u g a pau k o ry a a g i r a g i r a n i w a n a r a n u y o

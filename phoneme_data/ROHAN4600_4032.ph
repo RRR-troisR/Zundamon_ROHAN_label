@@ -1,0 +1,1 @@
+k a n o j o w a pau s a N r i o py u u r o r a N d o d e pau y o o sh o o k i o n a ts U k a sh i N d e i m a s U

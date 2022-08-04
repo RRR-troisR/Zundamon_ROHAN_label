@@ -1,0 +1,1 @@
+k i w e t e r u w a ts u y o k u n a cl t a g a pau u e n i w a my u r i g u y a pau b u r o o ny u n a d o k a i b u ts u g a t a ch I h a d a k a r u

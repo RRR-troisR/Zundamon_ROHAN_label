@@ -1,0 +1,1 @@
+p a i n a cl p u r u g a s o u k a cl t e k o t o w a pau j u gy o o d e y a r i m a sh I t a y o

@@ -1,0 +1,1 @@
+y e s u g e i w a o N ky o o k i z a i n i n o m e r i k o m i pau i m a w a h I t a s u r a ts i i t a a n o k a i z o o n i n e cl ky o o sh I t e r u

@@ -1,0 +1,1 @@
+s e N ny u u k a N n a sh i d e pau sh a t u u o m i t e k u r e

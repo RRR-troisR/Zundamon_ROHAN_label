@@ -1,0 +1,1 @@
+u r e i g o t o g a a r u n a r a z e h i g o s o o d a N o

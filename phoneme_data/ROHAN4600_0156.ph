@@ -1,0 +1,1 @@
+dy o o ch a N w a g e r i d e ch I k o k u d a k a r a pau v u r a t o o k o s a N t o d i z u n i i n i i k o

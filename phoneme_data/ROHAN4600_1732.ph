@@ -1,0 +1,1 @@
+s u i g a i k a r a m a m o r u t a m e n o ts u ts u m i n i pau p a p a r a cl ch i g a sh a i o sh i m e s u

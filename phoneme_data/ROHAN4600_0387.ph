@@ -1,0 +1,1 @@
+g u e r e e r o w a o k u by o o k a z e n i f u k a r e pau g u z u g u z u t o n u r u m a y u o n o z o m u

@@ -1,0 +1,1 @@
+k o N p i e e ny u d e d e z a a t o n a r a pau k u r e e m u b u ry u r e d a n a

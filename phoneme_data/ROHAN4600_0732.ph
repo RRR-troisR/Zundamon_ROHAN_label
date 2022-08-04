@@ -1,0 +1,1 @@
+b u g u u w a s e N gy o o y u u ch u u b a a n i n a cl t a g a pau ch u r o s u sh i b a r i n o n e t a j a m u r i y o

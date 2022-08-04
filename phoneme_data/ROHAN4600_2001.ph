@@ -1,0 +1,1 @@
+ch e m a w a pau sh i sh a o k a m i z a n i y u u d o o sh i m a s U

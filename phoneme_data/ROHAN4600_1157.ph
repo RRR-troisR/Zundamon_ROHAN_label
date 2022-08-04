@@ -1,0 +1,1 @@
+j a n o m i ch i w a h e b i d e a r u n a r a pau p I p e cl t o n o k o t o m o p u r o n i k I k u b e k i d a

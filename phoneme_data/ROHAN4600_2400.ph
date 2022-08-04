@@ -1,0 +1,1 @@
+d o sh a b u r i n i s a r a s a r e t a gy o f a t o pau h i b a ch i o k a k o m u

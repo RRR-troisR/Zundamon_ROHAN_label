@@ -1,0 +1,1 @@
+e r i i t o n o my o N w o N g a r i s o o t o sh I t a m a n a b i n o s o n o w a pau s u t u d e n i ts a n i a r i m a sh I t a

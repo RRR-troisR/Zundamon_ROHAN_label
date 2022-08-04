@@ -1,0 +1,1 @@
+y a k u by o o g a m i g a pau a g u b e ny u u n i t o r i ts u k i m a sh i t a

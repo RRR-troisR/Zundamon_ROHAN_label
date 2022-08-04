@@ -1,0 +1,1 @@
+ty o b a n i g a ty a a ty a a n a k U f u sh i g i n a t o r i o h a cl k e N sh i pau g a cl k a i d e h a cl py o o sh I t a

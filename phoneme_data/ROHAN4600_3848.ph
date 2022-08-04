@@ -1,0 +1,1 @@
+j e N s e N n o k a sh i w a j o j o o t e k i d e pau k I k u t a b i n a m i d a g a k o b o r e m a s U

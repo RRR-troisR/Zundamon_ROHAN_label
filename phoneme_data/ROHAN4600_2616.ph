@@ -1,0 +1,1 @@
+w o ny o N n o y a sh I k i n i pau h i r a k a z u n o t o b i r a g a a r i m a s U

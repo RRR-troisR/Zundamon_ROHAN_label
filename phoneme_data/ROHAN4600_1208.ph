@@ -1,0 +1,1 @@
+k o n o my u u j i k a r u pau b a i r i ts u g a t a k a k u pau k o r e w a p u r a ch i n a ch i k e cl t o y o

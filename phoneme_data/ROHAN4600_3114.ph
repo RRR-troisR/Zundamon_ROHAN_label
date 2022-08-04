@@ -1,0 +1,1 @@
+f a m i r i a t o r a i hy a r u t o t o n o t a i d a N w a pau sh u u sh i n a g o y a k a n i sh i N k o o sh i pau b u j i e N d i N g u o m u k a e t a

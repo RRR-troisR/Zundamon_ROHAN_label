@@ -1,0 +1,1 @@
+k o o k a i sh I t e r u k a m o sh i r e n a i k e d o pau k o b o sh I t a j u u s u w a m o d o cl t e k i m a s e N y o

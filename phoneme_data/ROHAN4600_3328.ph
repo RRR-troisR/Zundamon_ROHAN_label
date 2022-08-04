@@ -1,0 +1,1 @@
+k o sh o o sh I t a s e N t a k u k i o sh u u r i sh I t a n o n i pau h i i t a a n o sh U ts u ry o k u g a y o w a k u pau sh I t a g i g a n a m a g a w a k i d a t o

@@ -1,0 +1,1 @@
+y a h I k o t o m i h o w a b i n a N b i j o d e pau n e k o m o sh a k U sh i m o y a cl k a m u k a cl p u r u d a

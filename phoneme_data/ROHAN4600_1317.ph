@@ -1,0 +1,1 @@
+n u k a z u k e g a h o d o y o k U ts u k a cl t e r u k a pau ch e cl k u sh I t e k i t e ch o o d a i

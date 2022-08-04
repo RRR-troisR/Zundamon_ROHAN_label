@@ -1,0 +1,1 @@
+hy u u b a a t o o o N z o N sh i pau k o k o w a g i ny a s U t o p a t i i ny o d e g o n i N n u k i sh I t e m o r a u z e

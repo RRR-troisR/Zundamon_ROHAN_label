@@ -1,0 +1,1 @@
+ch i ry o k u o t a k a m e r u t o pau m a h o o o o b o e ky o o ky a r a n i n a r e r u j o o h o o o pau k u r i i m u b u ry u r e y o N k o d e k a cl t a

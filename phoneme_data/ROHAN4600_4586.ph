@@ -1,0 +1,1 @@
+d a r e g a s e N t a a n i n a r u k a w a pau k o n o j a N k e N n i k a k a cl t e i r u

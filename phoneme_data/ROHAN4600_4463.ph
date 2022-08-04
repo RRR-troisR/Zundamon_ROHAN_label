@@ -1,0 +1,1 @@
+o b o N n i k a z a r u g o n i y o r a i b a t a w a pau g o s e N z o s a m a e n o m e j i r u sh i n a n o d e s U

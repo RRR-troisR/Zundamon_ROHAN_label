@@ -1,0 +1,1 @@
+t a r u k u i i n i w a pau m a e g a m i o t a r a sh I t a k a m i g a t a d e pau n a N t o n a k u m i s U t e r i a s u n a i N sh o o o u k e r u

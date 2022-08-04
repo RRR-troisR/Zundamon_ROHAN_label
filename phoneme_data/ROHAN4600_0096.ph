@@ -1,0 +1,1 @@
+sh o k a n o j i r o v u n i cl a d e y u k i g a f u r u t o w a pau y u y u sh i k I k o t o d a

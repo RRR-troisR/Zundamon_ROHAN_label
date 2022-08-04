@@ -1,0 +1,1 @@
+i g a m i a cl t e t a f u r a ny o t o p u g a ch o f u g a w a b o k u sh I t a g a pau k o r e k o s o a m e f u cl t e j i k a t a m a r u d a n a

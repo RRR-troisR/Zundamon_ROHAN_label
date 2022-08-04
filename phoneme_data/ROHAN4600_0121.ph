@@ -1,0 +1,1 @@
+r e t o r o n a k a k u g e e d e pau h a r u ty u ny a N t o w o ky e t o k u v u n a g a pau g o b u n o t a t a k a i o k u r i h i r o g e r u

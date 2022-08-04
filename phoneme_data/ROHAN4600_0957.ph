@@ -1,0 +1,1 @@
+t u u hy e N b a cl h a k a r a b o o m e e sh I t a a t o n o k u r u sh i m i w a pau s o o z o o n i k a t a k u n a i

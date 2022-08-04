@@ -1,0 +1,1 @@
+ry u b u ry a n a w a pau g o g a k u ry o k U s a e a r e b a pau d a r e d e m o w e r u k a m u n a t o sh i d e s U

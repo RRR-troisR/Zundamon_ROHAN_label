@@ -1,0 +1,1 @@
+hy u b u r a a n o ts u m i n i w a pau j o o j o o sh a k u ry o o n o y o ch i g a a r u t o o m o u g a

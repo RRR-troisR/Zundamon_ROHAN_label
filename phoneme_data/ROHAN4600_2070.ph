@@ -1,0 +1,1 @@
+f i g e r o a n a r a pau g o r i N g a r i m o ky a cl ch i i d e s U n e

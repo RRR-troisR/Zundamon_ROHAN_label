@@ -1,0 +1,1 @@
+b u r a ts e cl t o g a s a m i d a r e sh I k i n i m e e r u o o k u r i pau a N d o ry u u g a u N z a r i sh I t e r u

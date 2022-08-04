@@ -1,0 +1,1 @@
+n e k o n o n a k i g o e w a pau h e e k i N t e k i n i w a ny a a ny a a d e s U y o n e

@@ -1,0 +1,1 @@
+f e d e r a a w a pau ky o k u d o n o k o w a g a r i d e a r u j i b u N o k a e r i m i m a sh I t a

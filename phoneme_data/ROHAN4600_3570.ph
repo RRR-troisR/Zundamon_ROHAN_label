@@ -1,0 +1,1 @@
+f u r u cl t e g o o o b o k u d a s a i t o a r u g a pau n a N by a k U t o o k u cl t e m o pau a t a cl t a t a m e sh i g a n a i

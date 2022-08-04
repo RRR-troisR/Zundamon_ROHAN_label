@@ -1,0 +1,1 @@
+ch u u sh i w a i s a g i y o i k e d o pau y a cl p a p a a ny o ry o k o o w a y a r i t a i n a

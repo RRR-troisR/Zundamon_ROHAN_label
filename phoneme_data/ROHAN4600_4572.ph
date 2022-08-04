@@ -1,0 +1,1 @@
+m a m o n a k u m o k U t e k i ch i e t o o ch a k U s u r u n o d e pau a N n a i o sh u u ry o o s u r u

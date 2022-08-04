@@ -1,0 +1,1 @@
+y e s o N t o g a b u r i e r u w a pau u r a n i w a o s o o j i sh I t e pau o ch i b a o m o y a sh I t a

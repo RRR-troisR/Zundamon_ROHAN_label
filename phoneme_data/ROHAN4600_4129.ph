@@ -1,0 +1,1 @@
+y u m i y a o ts U k u r u s a gy o o w a pau ch o cl t o m a n a N d a g u r a i d e w a d e k i n a i

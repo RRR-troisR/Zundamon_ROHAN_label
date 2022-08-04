@@ -1,0 +1,1 @@
+h a e a r u sh o o o pau g u o o g u a n o ky u r i i g a j u sh o o sh I t a

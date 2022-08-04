@@ -1,0 +1,1 @@
+z e N b u d e pau n a n a hy a k u sh u r u i g a s e e s o k u sh I t e i m a s U

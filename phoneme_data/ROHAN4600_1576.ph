@@ -1,0 +1,1 @@
+n a a pau f u N p a ts u sh I t e pau j e r u v i i ny o n i ry o k o o o p u r e z e N t o sh i y o o z e

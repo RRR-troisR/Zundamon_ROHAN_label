@@ -1,0 +1,1 @@
+a ny u u sh a w a b i sh o k u k a d e pau j i t a k u n i ch o k u z o k u n o k o cl k u m a d e y a t o u

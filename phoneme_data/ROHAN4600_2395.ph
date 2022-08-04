@@ -1,0 +1,1 @@
+v u r a s e n i ts a d e pau f U t o f u a N n i k a r a r e t a

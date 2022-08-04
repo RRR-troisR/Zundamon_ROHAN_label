@@ -1,0 +1,1 @@
+g u e i r a n o s e e y u u s a N m o pau ry u u k a k U s a N o n o m u k a m o sh i r e n a i

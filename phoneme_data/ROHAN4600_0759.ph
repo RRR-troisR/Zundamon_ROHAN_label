@@ -1,0 +1,1 @@
+ch u u p e r o d e t a b e t a k u d a m o n o w a pau p e r u sh a b u r a cl k U t o i u z a k u r o d a cl t a

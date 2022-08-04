@@ -1,0 +1,1 @@
+n a m a e n i ty o g a f U k u m a r e r u ny o t e e w a i m a s e N

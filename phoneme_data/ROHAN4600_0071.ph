@@ -1,0 +1,1 @@
+o r e w a a r a r u ty o b e n i sh u gy o o e m u k a u g a pau j o w e r u w a o i t e y u k u

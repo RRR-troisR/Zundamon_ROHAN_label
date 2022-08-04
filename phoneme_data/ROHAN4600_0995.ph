@@ -1,0 +1,1 @@
+ky a N t o w e r u n i h i n o k o g a k a k a r e b a pau gy o f u n o r i g a e r a r e s o o d a

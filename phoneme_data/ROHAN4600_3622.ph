@@ -1,0 +1,1 @@
+a t a sh i n i w a pau b i i n a s u z o o n o y o k o cl k a w a r a h e N g a pau m i e t a N d e s U y o

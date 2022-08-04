@@ -1,0 +1,1 @@
+n e m a a ny a g a pau b i g i n a a z u r a cl k u d e o o a n a o a t e t a k o t o w a pau v i g u cl ts o o r o n i m a d e ts U t a w a r u d a r o o

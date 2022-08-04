@@ -1,0 +1,1 @@
+n e dy o a n o k o t o b a k a r a w a pau k a k u g o g a m i t e t o r e m a sh I t a

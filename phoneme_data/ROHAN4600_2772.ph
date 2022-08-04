@@ -1,0 +1,1 @@
+w e e v e r u t o N w a pau f U k u z a ts u n a gy o o m u o sh o i k o m u

@@ -1,0 +1,1 @@
+v o i b u o d i n a d e w a pau p o k a p o k a t o a t a t a k a i m a m a pau h i g a k a g e r u

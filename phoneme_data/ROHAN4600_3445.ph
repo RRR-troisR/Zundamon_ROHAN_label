@@ -1,0 +1,1 @@
+j o o k e N n i pau dy o t o dy a o i r e t a k a k o n o j i b u N o pau k o k o r o n o s o k o k a r a i m a sh i m e t a i d e s U

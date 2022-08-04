@@ -1,0 +1,1 @@
+n a u n a y a N g u n i b a k a u k e t o i u f u u ch o o z u k u r i w a pau by o r u v i k a n o s e N j u ts u n a n o

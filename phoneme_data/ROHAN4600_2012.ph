@@ -1,0 +1,1 @@
+p a s U ky u a r u w a pau sh I ky u u d e g o z a o a m i m a s U

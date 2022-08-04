@@ -1,0 +1,1 @@
+p o ny a t o s U k i i n o d o g o o g a t o d o r o k i m a sh I t a g a pau hy o cl t o sh I t e h i j o o j i t a i

@@ -1,0 +1,1 @@
+k a d u ky o i n o t o a r u k o j i N j u k u d e w a pau i m a d a n i k o g a t a n a d e e N p I ts u o k e z u r u k u N r e N o s u r u

@@ -1,0 +1,1 @@
+k o o m o k a N t a N n i h o k a k U s a r e t e w a pau g u u n o n e m o d e m a s e N

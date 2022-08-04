@@ -1,0 +1,1 @@
+ky o o ts U k u t a m e pau s U p e e d o n o j u e r u o o t o s u n o m o pau o m i t o o sh i d a cl t a k a

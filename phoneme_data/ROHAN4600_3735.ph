@@ -1,0 +1,1 @@
+p u r o dy u u s a a g a pau h i g u ch I t o s a my u e r u n o v o o k a r u k i y o o o m i t o m e t a

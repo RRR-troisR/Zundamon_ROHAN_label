@@ -1,0 +1,1 @@
+m i s u r u t o k u b i n a n o d e pau b i N ts e N t i w a h i cl sh i d e r i k a b a r i i sh i m a sh I t a

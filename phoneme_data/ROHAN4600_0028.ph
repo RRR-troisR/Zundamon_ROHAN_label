@@ -1,0 +1,1 @@
+n o s a cl p u m i s a k i d e pau r e by u u n o k e cl k a o j u ry o o sh I t a

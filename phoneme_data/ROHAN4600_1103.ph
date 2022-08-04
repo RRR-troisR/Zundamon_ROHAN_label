@@ -1,0 +1,1 @@
+a sh i n a m i o m i d a s U k o t o n i pau ch e r u b e N k o f u w a k a b i N d e s U n o d e pau ch u u i s a r e t a sh i

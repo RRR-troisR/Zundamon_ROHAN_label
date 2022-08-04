@@ -1,0 +1,1 @@
+k u e r i cl ts U k o n o b e N ch i n i pau h a k U h a ts u m a j i r i d e a r a f i f u t o o b o sh i k I h i t o g a t a t a z u N d e i t a

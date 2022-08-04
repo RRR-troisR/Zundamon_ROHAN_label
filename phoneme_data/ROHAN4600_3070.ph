@@ -1,0 +1,1 @@
+t i ty u b a n o s u i r i w a g a i z e N s e e n i t o b o sh i i g a pau s o r e d e m o k a k e r u k a ch i w a a r i s o o d e s U

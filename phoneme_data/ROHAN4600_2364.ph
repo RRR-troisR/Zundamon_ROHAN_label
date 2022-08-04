@@ -1,0 +1,1 @@
+p a t o r i ts i o n o f o o m u w a u ts U k u sh i i

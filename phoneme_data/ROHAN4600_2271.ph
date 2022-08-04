@@ -1,0 +1,1 @@
+v u w o j i m i e j u w a pau k a k U k a z o k u d e s U k a

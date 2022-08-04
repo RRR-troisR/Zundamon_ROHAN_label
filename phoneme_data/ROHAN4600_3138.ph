@@ -1,0 +1,1 @@
+g u i n a m u g a pau m e o p a cl ch i r i sh I t e p u r i k u r a n i u ts u r u y a r i k a t a o pau ry a z a a n o f u t o s a g u cl t e i r u

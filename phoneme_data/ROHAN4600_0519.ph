@@ -1,0 +1,1 @@
+a k u r u h i n o a s a pau b e r u r e p u sh u w a pau z o i d o o k a i n i s u u p a a n i d e k a k e t a

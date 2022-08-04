@@ -1,0 +1,1 @@
+f o b a r u g u n o h a k a d e pau n a m i d a g a b u w a cl t o a f u r e d e t e k i m a sh I t a

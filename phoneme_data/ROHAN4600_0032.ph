@@ -1,0 +1,1 @@
+h e b e r e k e n o h a a ts o g u g a pau a t a r i o ky o r o ky o r o t o m i w a t a s u

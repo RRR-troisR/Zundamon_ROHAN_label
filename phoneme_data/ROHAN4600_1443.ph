@@ -1,0 +1,1 @@
+d i r i cl p u g a u r a m e sh i i t o sh I t e m o pau r o k o ts u n i k i b a o m u k u n o w a y a m e m a sh o o

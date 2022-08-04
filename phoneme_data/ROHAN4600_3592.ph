@@ -1,0 +1,1 @@
+s o o sh a r u d i s u t a N s u o t e cl t e e sh I t a p a b u r i cl k u by u u i N g u w a pau m o r i a g a r i n i k a k e r u t o h i hy o o s a r e t a

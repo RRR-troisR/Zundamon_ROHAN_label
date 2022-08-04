@@ -1,0 +1,1 @@
+y e w o N t o n o o m o i d e w a pau k a N g a i b u k a i m o n o d e s U w a

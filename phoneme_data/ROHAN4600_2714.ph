@@ -1,0 +1,1 @@
+g u e r u ts o o n i w a pau h i b i sh u gy o o o o k o n a u

@@ -1,0 +1,1 @@
+i N y u d e b u j o k U s a r e t a sh e e N m e cl ts a a g a pau h i n i k u d e y a r i k a e sh I t a

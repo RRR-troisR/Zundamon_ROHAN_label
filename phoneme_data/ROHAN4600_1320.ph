@@ -1,0 +1,1 @@
+s o cl k a pau u s u t a cl t e pau v e n e ts i a a n o t o k o o ry u u g a a r u N d a cl k e

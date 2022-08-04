@@ -1,0 +1,1 @@
+f u d a N t o ch i g a u k o j a r e t a f U k u o k i t a y e r i s a v e e t a w a pau k a ts U t e p u r o n o j o ry u u k I sh i d a cl t a

@@ -1,0 +1,1 @@
+ky e sh e k u g a k I sh u u o k u w a d a t e t e m o pau w a g a g u N n o r e e d a a g a h o s o k u d e k i r u

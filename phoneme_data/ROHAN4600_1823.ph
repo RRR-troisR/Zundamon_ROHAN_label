@@ -1,0 +1,1 @@
+g a a z i i p u r u d e n o k e cl k o N pau n a k o o d o w a by u i y a a r u s a N d a cl t a N d e s U

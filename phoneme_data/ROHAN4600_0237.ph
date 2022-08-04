@@ -1,0 +1,1 @@
+w a t a k u sh i g o t o d e ky o o sh U k u d e s U g a pau sh i b a sh i o h i m a o ch o o d a i sh I t a k u z o N j i m a s U

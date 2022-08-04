@@ -1,0 +1,1 @@
+d e e m i i d o v a w a pau f u N k a sh I t a y a m a k a r a d a cl sh U ts u sh i pau v e r u h o f U ts o f u n i t a s U k e o m o t o m e t a

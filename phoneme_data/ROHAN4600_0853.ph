@@ -1,0 +1,1 @@
+g a i j e r o o v a n o k u m i ky o k u w a pau b i o r a t o p i a n o d e k o o s e e s a r e m a s U

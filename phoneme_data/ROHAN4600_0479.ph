@@ -1,0 +1,1 @@
+k u u e sh i w a f U t o k o r o g a s a m u k u pau sh i b a r a k U k a cl p u r a a m e N d e k u r a sh i m a s U

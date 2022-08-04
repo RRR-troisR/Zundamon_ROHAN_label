@@ -1,0 +1,1 @@
+k a i d a N o k u d a r u t o pau k u a r i e r i t o b a cl t a r i s o o g u u sh i m a sh I t a

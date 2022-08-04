@@ -1,0 +1,1 @@
+z a N gy a k u n a s a ts u r i k u o ry u u g i t o s u r u k I ch i k u n i pau d o o j o o n o y o ch i w a k a i m u d e sh o

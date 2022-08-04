@@ -1,0 +1,1 @@
+j o o k a k u d e pau g u u u g u u u n e t e i r u t o k o r o o h a cl k e N s a r e t a

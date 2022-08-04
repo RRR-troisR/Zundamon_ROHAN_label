@@ -1,0 +1,1 @@
+ky a s a r i N w a m e o k i r a k i r a s a s e n a g a r a pau b o k u n i sh I ts u m o N z e m e o sh I t a

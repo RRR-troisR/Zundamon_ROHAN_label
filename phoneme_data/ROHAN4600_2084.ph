@@ -1,0 +1,1 @@
+y u s u p o v a s a N pau k a b u t o n o o o sh i m e t e k u d a s a i

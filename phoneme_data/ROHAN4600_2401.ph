@@ -1,0 +1,1 @@
+v a s i i ry o v i ch u w a pau w a i t a y u d e y a m e ch a o i r e t e m a s U

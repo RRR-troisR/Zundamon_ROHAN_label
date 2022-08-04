@@ -1,0 +1,1 @@
+f u n e n o n a g a ky u p e r u r i i n a n o w a pau s a k U sh a d e a r u p e cl sh i n o k o n o m i n i pau y u r a i s u r u

@@ -1,0 +1,1 @@
+s a py e j i n a k u N pau hy a k u n o k u r a i d e sh I sh a g o ny u u sh i t a m a e

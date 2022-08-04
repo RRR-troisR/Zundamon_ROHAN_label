@@ -1,0 +1,1 @@
+t e r a m e g u r i n o t a b i n o o w a r i w a pau g u u by a u cl j i i j i i N d a cl t a y o n e

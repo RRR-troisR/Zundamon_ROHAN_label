@@ -1,0 +1,1 @@
+s a N by a k u n o k u d a g a ts u n a g a r u k o n o d e b a i s u n i pau d o N n a h i m i ts u g a a r u n o d a r o o

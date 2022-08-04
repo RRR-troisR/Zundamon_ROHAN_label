@@ -1,0 +1,1 @@
+w i my o N w a g a k U sh a h a d a d a g a pau h a k u sh i g o o o t o r u ts u m o r i w a n a i y o o d e s U

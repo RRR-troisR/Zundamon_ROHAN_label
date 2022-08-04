@@ -1,0 +1,1 @@
+i k u r a b a r e z i g a t e e k o o sh I t a k a r a t o pau s a i r u i g a s u o sh i y o o s u r u n o w a a N m a r i j a n a i d e s U k a

@@ -1,0 +1,1 @@
+g u d e r u ts o n o a b i r i t i i w a pau ky o o i d a k a r a n a

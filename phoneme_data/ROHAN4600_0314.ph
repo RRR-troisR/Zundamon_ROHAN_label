@@ -1,0 +1,1 @@
+h o my a k o o f u w a pau ty u z o o o m i k a g i r i r i s U t o r a sh I t a

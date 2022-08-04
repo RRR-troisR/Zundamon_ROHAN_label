@@ -1,0 +1,1 @@
+k o n o b o a s U p i a s o o d o w a b a k a g e t a k i r e a j i d e pau t e ts u d e m o k i r i s a k i m a s U z o

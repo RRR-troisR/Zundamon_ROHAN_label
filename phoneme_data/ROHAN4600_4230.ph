@@ -1,0 +1,1 @@
+gy a r a g a s a N pau t a i k a k i N k o n o t e cl p i w a pau d o r e k u r a i n o a ts u s a d e s U k a

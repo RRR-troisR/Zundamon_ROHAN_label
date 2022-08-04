@@ -1,0 +1,1 @@
+y o s U t e b i t o gy u i s a N n o s o N g a i o pau b o k u r a g a k o o m u r u n a N t e

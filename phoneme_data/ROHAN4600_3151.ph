@@ -1,0 +1,1 @@
+f e f a a n i ts u i t e pau my o o n a u w a s a g a r u f u sh I t e r u g a pau s o n a t a w a d e d o k o r o o sh i cl t e o r u n a

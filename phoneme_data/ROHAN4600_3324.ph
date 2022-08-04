@@ -1,0 +1,1 @@
+k u u i N t u s u g a m o t o m e t a i k e n i e w a s u z u m e d a g a pau p o r u ts i o n o j o g e N d e h a i sh I s a r e t a

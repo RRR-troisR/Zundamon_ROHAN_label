@@ -1,0 +1,1 @@
+my a N m a a ry o o r i d e w a pau gy u u n i k u y o r i pau t o r i n i k u y a y o u n i k u g a y o k U ts u k a w a r e r u

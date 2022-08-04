@@ -1,0 +1,1 @@
+g a k u n e N t o cl p u o sh i sh u sh I t a r a pau k o n o j u u s i i n a m e r o N g a t a b e r a r e r u

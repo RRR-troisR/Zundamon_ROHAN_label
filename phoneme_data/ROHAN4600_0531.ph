@@ -1,0 +1,1 @@
+b a s U k e b u n o ty o N g a pau a r u y o r u ts e n a a d a i o o d o o b e N k i n i s U t e t a

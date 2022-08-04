@@ -1,0 +1,1 @@
+z a i g a k U k i k a N n i pau sh u d e i ky u u s u o k i N ky o r i k a r a m i t a i m o n o d e s U

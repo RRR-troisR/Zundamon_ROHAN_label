@@ -1,0 +1,1 @@
+sh a z a i s u r e b a pau s u b e t e g a m a r u k u o s a m a r u n o d e g o z a i m a s U

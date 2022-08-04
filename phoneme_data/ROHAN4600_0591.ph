@@ -1,0 +1,1 @@
+ts e r u k u ny e d e sh i cl t a s u m a h o g e e n a r a pau m u g e N n i j i k a N g a t o k e ch a u z e

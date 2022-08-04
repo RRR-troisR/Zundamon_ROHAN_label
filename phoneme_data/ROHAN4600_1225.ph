@@ -1,0 +1,1 @@
+a n o by o o i N n a r a b a pau t o o by o o o e r u ch a N s u w a pau m a d a a r i m a s U

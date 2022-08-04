@@ -1,0 +1,1 @@
+b a a my u u r e N s a N g a n e b a r e b a pau d e k o b o k o n o t o ch i o t a i r a n i m o d e k i r u z o

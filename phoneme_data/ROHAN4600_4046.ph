@@ -1,0 +1,1 @@
+h o o k o o k u r a u d o w a pau s a p o o t o g a k a n a r i j u u j i ts u sh I t e i m a s U

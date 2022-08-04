@@ -1,0 +1,1 @@
+s e cl k a k u d a k a r a pau f e r u p U s u y a p e t i g u ry u u t o m o pau sh i N b o k u o f U k a m e m a sh o

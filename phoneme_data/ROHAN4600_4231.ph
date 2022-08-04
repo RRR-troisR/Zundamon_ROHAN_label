@@ -1,0 +1,1 @@
+b e r u f a s U t o w a pau p o py u r a a o N g a k u o k I k e b a pau n e m u k e g a m a g i r e r u cl p o i d e s U

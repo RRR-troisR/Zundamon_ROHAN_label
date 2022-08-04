@@ -1,0 +1,1 @@
+i b o o gy u N n o k a r a k U ch i k o m e N t o w a pau g e k i r e e d e m o a r u k a r a pau sh i N sh i n i m u k i a i t a m a e

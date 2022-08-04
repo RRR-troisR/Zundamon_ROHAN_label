@@ -1,0 +1,1 @@
+ty a y a k u i pau g u i n o t a N g o w a s u d e n i k o k a ts u sh I t a g a pau h i r a g a n a d e n a r a u py a y a by a g a s U k u n a i n o w a pau f u n i o ch i n a i

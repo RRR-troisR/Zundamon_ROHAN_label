@@ -1,0 +1,1 @@
+ky o sh I ts u d e r a ch I s a r e t a ky a k u n a r a pau ch a o pau ty a t o h a ts u o N s u r u n o d e w a k a r i m a s U

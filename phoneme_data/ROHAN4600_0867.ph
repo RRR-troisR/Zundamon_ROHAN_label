@@ -1,0 +1,1 @@
+g u a a t o i u d a N m a ts u m a n o s a k e b i g a pau n a g a k U h a N ky o o sh I t e r u

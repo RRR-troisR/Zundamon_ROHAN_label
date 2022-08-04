@@ -1,0 +1,1 @@
+k o o p a s u b u N n o e N t o r o p i i k o o j o o n i m u k e pau k u a t o k u o pau ty a t o dy a o i r e r u s a gy o o g a pau m a d a m a d a ts u z u k u

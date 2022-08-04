@@ -1,0 +1,1 @@
+s o N sh o o g a h a g e sh i k u pau k a o n i k i z u a t o g a n o k o r u k a m o sh i r e n a i

@@ -1,0 +1,1 @@
+y u m i w a pau k u a d u r a f o o n i k u n o p o s U t a a o ch o o f U sh i pau p e e p a a m o h a i f u sh I t a

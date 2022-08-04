@@ -1,0 +1,1 @@
+h e e s e e j u u ky u u n e N k a r a pau f o N ts i w a g e k a i m o k e N m u sh i d a sh I t a

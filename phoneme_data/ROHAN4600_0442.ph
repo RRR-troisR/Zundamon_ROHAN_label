@@ -1,0 +1,1 @@
+sh u b a r u ts U k o cl p u n o n e cl sh o o n i h o d a s a r e pau s U p a ch a sh I s u g i m a sh I t a

@@ -1,0 +1,1 @@
+j a ky o o n o o sh i e w a pau i n a b i k a r i n o y o o n a sh o o g e k i o pau ts i i r i N n i a t a e r u

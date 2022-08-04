@@ -1,0 +1,1 @@
+e cl t o pau s u t a cl k u n o a r u g o r i z u m u d e w a pau p u cl sh U t o p o cl p u g a k a n a m e d e s u

@@ -1,0 +1,1 @@
+h o k e N j o n o k o n e k o y o N h I k i w a pau m i n a y a s e cl p o ch i d e hy o r o hy o r o d a cl t a

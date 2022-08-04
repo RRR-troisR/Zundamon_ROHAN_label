@@ -1,0 +1,1 @@
+ky o N dy o g a p a N m a r u d a t o sh i r i pau gy a r o w e i w a o d o r o k a s a r e m a sh I t a

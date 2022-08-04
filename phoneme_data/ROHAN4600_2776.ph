@@ -1,0 +1,1 @@
+h a r u ty u ny a N g a pau ry u b u n o d e s o o n a N sh I t a

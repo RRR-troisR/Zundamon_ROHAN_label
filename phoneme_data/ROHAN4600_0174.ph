@@ -1,0 +1,1 @@
+n u r i e g a t o k u i n a a a k u e cl t o w a pau k i cl t o r i cl p a n a m a N g a k a n i n a r u d a r o o

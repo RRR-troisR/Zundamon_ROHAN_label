@@ -1,0 +1,1 @@
+r e b e dy a N d e pau h a j i o k a i t a s U k a e w o r a o a z a k e r u

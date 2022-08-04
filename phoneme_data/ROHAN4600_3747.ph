@@ -1,0 +1,1 @@
+n a ts u i t a o j i k a r a pau f a m i k o N n o a k U sh o N g e e m u pau f a z a n a d o u o k a r i r u

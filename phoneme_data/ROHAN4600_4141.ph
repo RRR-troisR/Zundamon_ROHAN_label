@@ -1,0 +1,1 @@
+p e N d i N g u n i sh I t a n o d e pau sh i m e k i r i o m i cl k a n o b a sh I t e m o r a i r a cl k i i d a

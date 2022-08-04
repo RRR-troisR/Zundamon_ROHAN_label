@@ -1,0 +1,1 @@
+y a g i e w o ch o o o o j o pau e r u j u by e t a pau y a g i e r o N k a g a pau m o k U hy o o o s a d a m e r u

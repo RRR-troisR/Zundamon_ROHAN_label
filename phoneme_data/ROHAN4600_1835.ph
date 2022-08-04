@@ -1,0 +1,1 @@
+g u u e i N k a r a u k e t a k o m a k a i k i z u o i y a s U t a m e pau by o o i N e i k i m a s U

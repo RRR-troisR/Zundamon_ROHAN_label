@@ -1,0 +1,1 @@
+w i r u ch e cl k U k u N pau t o g e o n u k i m a sh o o

@@ -1,0 +1,1 @@
+by u u N g a h I t o m a e n i a r a w a r e r u t o k i pau s e k a i n i k o N t o N g a m o t a r a s a r e r u

@@ -1,0 +1,1 @@
+n o r u w e e n o sh a k e m o m o r a cl t a sh i pau ch a N ch a N y a k i d e m o y a r i m a s U k a

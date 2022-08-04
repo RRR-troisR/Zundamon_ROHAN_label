@@ -1,0 +1,1 @@
+g e N m a i k a r a n u k a o n o z o k i w a s u r e pau o m o w a z u dy o o t o k o e g a d e t a

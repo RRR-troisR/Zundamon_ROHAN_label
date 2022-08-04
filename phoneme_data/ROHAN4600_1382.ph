@@ -1,0 +1,1 @@
+dy a o h a N w a pau k o h i ts u j i n o p e r u sh a a d o n o ch o o r i o pau s a m a t a g e t a

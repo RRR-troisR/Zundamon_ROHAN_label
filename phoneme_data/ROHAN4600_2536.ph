@@ -1,0 +1,1 @@
+n u k i e r i n o k o o d i n e e t o d e m o j i m i d a n a

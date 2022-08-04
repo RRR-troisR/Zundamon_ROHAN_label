@@ -1,0 +1,1 @@
+w i j e cl t o o k i w a m e t a i n a r a pau sh U p a i hy a a n i i cl t e m i n a s a r e

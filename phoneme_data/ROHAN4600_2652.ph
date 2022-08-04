@@ -1,0 +1,1 @@
+d o by e n i a k u n i N g a n i g e k o m i m a sh I t a

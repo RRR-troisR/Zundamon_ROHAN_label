@@ -1,0 +1,1 @@
+g u a i t i o w a pau o o e s u e s u e k o o k e N s u r u n o g a sh u m i d a

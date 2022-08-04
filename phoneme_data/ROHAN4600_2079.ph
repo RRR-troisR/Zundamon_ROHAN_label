@@ -1,0 +1,1 @@
+sh a a r u v e N k a g a pau t o ts u j o m e n o m a e n i a r a w a r e m a sh I t a

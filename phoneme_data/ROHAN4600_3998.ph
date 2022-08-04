@@ -1,0 +1,1 @@
+w o r u f I t o a N d o r e a s u w a pau f U k u sh i m a n o sh o o ny u u d o o o o t o z u r e t a

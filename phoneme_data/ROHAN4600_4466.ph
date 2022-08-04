@@ -1,0 +1,1 @@
+v o i t e k u w a pau sh I k a g i sh i n o m e N ky o o m o cl t e i m a s e N

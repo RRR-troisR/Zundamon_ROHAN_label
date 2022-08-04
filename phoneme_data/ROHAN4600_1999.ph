@@ -1,0 +1,1 @@
+b e r u d i e w a i sh I h a k u j a k u d e pau k a z a m i d o r i d a t o k a g e d e y a y u s a r e r u h o d o d a sh i n a

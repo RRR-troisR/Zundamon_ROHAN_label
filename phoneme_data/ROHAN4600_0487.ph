@@ -1,0 +1,1 @@
+j a r i i s a g a b a z a a d e k o o ny u u sh I t a p i a s u w a pau r e p u r i k a d e sh I t a

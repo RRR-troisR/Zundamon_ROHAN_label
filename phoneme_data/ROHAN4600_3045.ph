@@ -1,0 +1,1 @@
+b a d i i j o n o h a r e s u g a t a o k a m e r a n i o s a m e pau ch u N h a a w o N n i m o m i s e t e a g e m a sh o o

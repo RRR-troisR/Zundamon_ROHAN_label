@@ -1,0 +1,1 @@
+ky a r i i k e e s u g a a m a r i n i m o o m o k U t e pau k I t a k u g o n i d a ts u ry o k u sh I t a

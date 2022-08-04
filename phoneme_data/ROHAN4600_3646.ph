@@ -1,0 +1,1 @@
+a k a s a r e t a e r a a n o m o t o w a pau n u r u p o i N t a a pau e k U s e p U sh o N d e sh I t a

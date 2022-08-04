@@ -1,0 +1,1 @@
+m a i n i ch i w a r u i k e d o pau h a i t a ts U t a n o m e r u k a n a pau f o r u t e i t u u d o

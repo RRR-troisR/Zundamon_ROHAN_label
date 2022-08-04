@@ -1,0 +1,1 @@
+n o b a f e r u t o r i a n o b o k U sh i w a pau t a g i t e k i d e z e ts u my o o n a k o t o b a o ts U k a u

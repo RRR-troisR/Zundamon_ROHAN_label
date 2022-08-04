@@ -1,0 +1,1 @@
+d e cl sh i i g a s a g u r i a t e t a k o d a i n o m a k i m o n o n i y o r u t o pau m a m o n o w a k o n o sh I t a n i n i g e k o m u h a z u d a g a

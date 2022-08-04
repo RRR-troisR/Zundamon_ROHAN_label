@@ -1,0 +1,1 @@
+y o b i n o g e k i y a k u m o pau r a b a ty u g a m o cl t e cl ch a cl t a k a r a n a a

@@ -1,0 +1,1 @@
+k i N g u n o g u cl k u a w a b a k U s u i ch u u d e sh I t e pau n e o k i g a m e cl ch a w a r u i d e s U g a o k o sh i m a sh o o k a

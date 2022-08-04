@@ -1,0 +1,1 @@
+s o r e n a r a b a pau k o k o g a d e k i u r u f o r o o d e m o j u u b u N d e w a

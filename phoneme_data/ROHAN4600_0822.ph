@@ -1,0 +1,1 @@
+py e r u v o m a i s U k i i w a pau ts u n e n i k o N z a ts U s u r u n i N k I s u p o cl t o d e s U

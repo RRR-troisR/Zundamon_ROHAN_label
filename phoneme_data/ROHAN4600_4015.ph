@@ -1,0 +1,1 @@
+k o d o m o n o t a N j o o b i n i pau r i cl p a n a sh o o t o k e e k i o ts U k u r i m a sh o o

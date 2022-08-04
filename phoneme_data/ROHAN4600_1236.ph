@@ -1,0 +1,1 @@
+f u g o o n i n a r u y u m e n o t a m e pau b e N b e n u u t o w a k a n e o a ts u m e m a s U

@@ -1,0 +1,1 @@
+t u k a p e r u d e pau s U k i y a z u k u r i n o j u u t a k u g a k e N z o o s a r e t e i r u

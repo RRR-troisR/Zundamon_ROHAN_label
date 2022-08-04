@@ -1,0 +1,1 @@
+h a by a r i m a n a w a s o g e k i n i b i k u b i k U t o o b i e pau sh o k u j i m o gy a cl d o n i d o k u m i s a s e r u

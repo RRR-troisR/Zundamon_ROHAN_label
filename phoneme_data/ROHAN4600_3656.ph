@@ -1,0 +1,1 @@
+k o o sh a k u w a pau d a i k i b o n a b o N sh o o pau m i N g u o N n o k a n e o o t o z u r e m a s U

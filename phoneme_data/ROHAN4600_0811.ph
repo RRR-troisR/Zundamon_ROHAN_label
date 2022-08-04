@@ -1,0 +1,1 @@
+g a j e g a k U ch i b i r u o s u b o m e pau sh e i k u o s U t o r o o k a r a ch u u ch u u s u cl t e m a s U

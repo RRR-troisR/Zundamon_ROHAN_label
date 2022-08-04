@@ -1,0 +1,1 @@
+ch e r u k u e cl t i n o g e k I t e k i n a gy a k U t e N sh o o r i n i pau sh U k u h a i o a g e m a sh o

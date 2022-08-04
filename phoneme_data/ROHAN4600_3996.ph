@@ -1,0 +1,1 @@
+k o k o r a d e d a i ky u u o t o r a s e n a i t o pau r i z i i g a k a r o o d e t a o r e t e sh i m a u

@@ -1,0 +1,1 @@
+ky u u h I k i n o m u sh i o pau ch e f a g a t o r a e t a

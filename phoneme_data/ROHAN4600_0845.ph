@@ -1,0 +1,1 @@
+v a r a N t i i n u w a ky o k u d o n o g e k o d e pau s a k e w a m a cl t a k u d a m e n a n o d e s U

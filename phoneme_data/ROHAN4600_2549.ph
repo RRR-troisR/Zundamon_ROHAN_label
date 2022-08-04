@@ -1,0 +1,1 @@
+g i y e r u m o n o k u N j i w a pau s a z o y a h a n a b a n a sh i k a cl t a r o

@@ -1,0 +1,1 @@
+ny u u w e i w a g e sh i n i pau sh u n i cl ts e r u o k u u

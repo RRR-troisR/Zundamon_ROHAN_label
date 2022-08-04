@@ -1,0 +1,1 @@
+sh o o ry a k u g o m o pau f u y u u ry u u sh i n o sh i my u r e e sh o N j o o w a pau h I t o sh i k u n a r u

@@ -1,0 +1,1 @@
+j o o k u j a n a k u pau d o o k U ts u n i w a ny o r o ny o r o sh I t a h e b i g a i r u N d e s U y o

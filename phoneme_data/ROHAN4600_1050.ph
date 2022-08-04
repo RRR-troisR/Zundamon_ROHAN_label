@@ -1,0 +1,1 @@
+k a z e d a s o o n a n o d e pau my a r i k u g u r u w a n i g e N m e n i ch I k o k u sh I t e k i m a s U

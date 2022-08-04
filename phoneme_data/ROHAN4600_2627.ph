@@ -1,0 +1,1 @@
+d i r u w i N n o ts u m e g a pau g u ny a g u ny a y a w a r a k a i d e s U

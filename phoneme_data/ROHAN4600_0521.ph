@@ -1,0 +1,1 @@
+sh i o a j i n o k o t o o s o r u t I t o i u t o pau my o o n i o sh a r e n a h i b i k i n i n a r u n o d a

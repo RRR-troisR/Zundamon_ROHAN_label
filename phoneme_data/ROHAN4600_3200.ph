@@ -1,0 +1,1 @@
+m i ny o o ny a w a pau a k u j i o k a s a n e r u ky u ny o o o k o N k i y o k u i s a m e ts u z u k e pau ts u i n i k a i sh i N s a s e t a

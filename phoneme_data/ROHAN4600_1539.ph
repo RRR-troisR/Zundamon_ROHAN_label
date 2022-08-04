@@ -1,0 +1,1 @@
+k o g o n o g o g e N o s a g u r u v a e e d a o pau z e h I t e ts u d a cl t e a g e t e k u r e

@@ -1,0 +1,1 @@
+py u u r i cl ts a a g a m a m i z u o n o m i pau g u r u u b u n i a w a s e t e t e by o o sh I sh i m a s U

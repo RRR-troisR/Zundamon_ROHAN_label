@@ -1,0 +1,1 @@
+g o j o g i m u g a a r u t a m e pau ch o k i N o y u v a s U ky u r a n o h a h a n i o k u r i m a s U

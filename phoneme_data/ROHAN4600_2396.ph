@@ -1,0 +1,1 @@
+s e e j o o j a k u m e ts u n o i m i g a w a k a r a n u

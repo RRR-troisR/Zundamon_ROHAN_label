@@ -1,0 +1,1 @@
+s u m a a t o f o N n i k a i k a e r u k o t o o k i m e m a sh I t a

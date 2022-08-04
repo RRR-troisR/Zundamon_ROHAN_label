@@ -1,0 +1,1 @@
+s o n o j o o k e N k a d e pau i h o o s e e g a s o ky a k U s a r e r u t o w a pau k a N g a e r a r e n u

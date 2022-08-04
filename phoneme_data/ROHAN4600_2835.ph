@@ -1,0 +1,1 @@
+g u e r a cl ts i w a pau a b u r a s o b a n o e N b u N o pau a j i o o t o s a z u h e r a s u r e sh I p i o k o o a N sh i m a sh I t a

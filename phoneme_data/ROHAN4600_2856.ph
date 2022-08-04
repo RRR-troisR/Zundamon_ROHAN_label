@@ -1,0 +1,1 @@
+d u d u k a w a pau s a a k u r u d e w a h e ny o h e ny o sh i t a y a ts u d a g a pau i e n i k a k U sh i k I d a k a i b u ts u d a N g a a r i m a s U

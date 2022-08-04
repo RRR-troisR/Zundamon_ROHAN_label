@@ -1,0 +1,1 @@
+w a r u a g a k i sh I t e m o pau g u e a s a N n i o t o r u j i j i ts u w a k U ts u g a e r i m a s e n u

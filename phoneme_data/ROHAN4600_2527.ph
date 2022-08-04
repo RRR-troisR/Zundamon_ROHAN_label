@@ -1,0 +1,1 @@
+v u k u ts e b i cl ch i o s a g a s u n a r a pau my u t i n e r e d a r o o

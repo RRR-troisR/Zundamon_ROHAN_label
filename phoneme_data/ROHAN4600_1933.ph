@@ -1,0 +1,1 @@
+py o k u k e s u w a y u cl t e i t a k a m i o k i r i pau t a N p a ts u n i m o d o sh I t a

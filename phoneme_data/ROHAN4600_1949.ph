@@ -1,0 +1,1 @@
+b e r e ny e sh o b a a n o t a y u m a n u d o ry o k u n i pau y u gy o m u w a t a N p U k u sh I t a

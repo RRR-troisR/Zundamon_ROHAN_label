@@ -1,0 +1,1 @@
+gy a k u n i o o b e e sh o k o k u w a pau s e e s a i n i s e cl ky o k u t e k i n a sh I s e e o sh i m e sh I t e i r u

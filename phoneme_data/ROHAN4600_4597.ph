@@ -1,0 +1,1 @@
+y a w a r a k a i s o z a i n o m e j a a g a h o sh i i n o d e pau hy a k u e N sh o cl p u e a sh i o h a k o N d a

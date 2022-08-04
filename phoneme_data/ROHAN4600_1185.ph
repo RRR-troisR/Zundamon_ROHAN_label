@@ -1,0 +1,1 @@
+sh I ts u j i n o b u r o d i g a pau v a z u t o b a sh a b a sh a m i z u a b i sh I t e a s o b u

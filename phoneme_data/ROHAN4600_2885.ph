@@ -1,0 +1,1 @@
+o t o t o i k a r a ky a m e r o N g a p u r i p u r i o k o cl t e t a g a pau s a k I h o d o y a cl t o k i g e N g a m o d o r i m a sh I t a

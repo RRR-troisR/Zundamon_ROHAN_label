@@ -1,0 +1,1 @@
+s i j i r u w a pau a e N f u s o k u d e m i k a k u g a k u r u cl t a

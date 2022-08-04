@@ -1,0 +1,1 @@
+b o k u w a n a i f u o t o g i pau w e e b u n o r o g o o i r e t e o w a t a sh I sh i m a s U

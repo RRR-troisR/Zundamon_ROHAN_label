@@ -1,0 +1,1 @@
+r a f a e r u g a s e n a k a o h a g e sh i k u u cl t e r i t a i a d a k a r a pau m o sh i i ny o t o k o o t a i s a s e y o o

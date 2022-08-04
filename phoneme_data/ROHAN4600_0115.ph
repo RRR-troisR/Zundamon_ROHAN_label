@@ -1,0 +1,1 @@
+s a t e y a p a r u w a pau t a p i o k a n i N k i n o k a g e r i o m i n u k i pau b e ts u n o t e N p o n i k u r a g a e sh I t a

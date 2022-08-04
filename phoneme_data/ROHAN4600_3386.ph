@@ -1,0 +1,1 @@
+g u o N j u g a m o cl t e k i t a s U p e sh a r u n a r e e d a a d e w a pau h a r i g a m i n a m i n i f u r e t e i r u y o o d a

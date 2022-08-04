@@ -1,0 +1,1 @@
+N g o z i w a pau k a s u r e g o e d e h e r a z u g u ch i o t a t a k u

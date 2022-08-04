@@ -1,0 +1,1 @@
+sh o k a n o k a j i ts u o gy u gy u cl t o sh i b o cl t a pau k o i m e n o f u r e cl sh u n a j u u s u d e s U

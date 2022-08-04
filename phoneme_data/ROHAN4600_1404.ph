@@ -1,0 +1,1 @@
+gy a ts o g a h i m i ts u o b a k u r o sh i pau j a k o cl b e w a h e k o N d e i m a s U

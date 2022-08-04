@@ -1,0 +1,1 @@
+t a g u a sh i p a o m i y o o t o pau h I t o g a ts u r a n a r u

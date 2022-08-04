@@ -1,0 +1,1 @@
+j u r i a g a pau t o o ny u u o s o s o g i n a g a r a h a m i N g u s u r u n o g a k I k o e m a s U

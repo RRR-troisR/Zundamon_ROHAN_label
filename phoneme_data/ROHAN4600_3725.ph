@@ -1,0 +1,1 @@
+a i r i cl sh u my u u j i cl k u g a n a g a r e r u pau sh a i N r a g a i k o u b a sh o d e a r u

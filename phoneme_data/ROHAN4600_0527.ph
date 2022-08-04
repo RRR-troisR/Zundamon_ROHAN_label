@@ -1,0 +1,1 @@
+w i k I p e d i a n i k a n o j o n o n a m a e g a n o cl t e o r i pau p a p a s u w a y o r o k o b u

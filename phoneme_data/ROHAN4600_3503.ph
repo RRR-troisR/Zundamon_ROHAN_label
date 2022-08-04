@@ -1,0 +1,1 @@
+a N g u i r a n o b i i ch i d e o b o r e t a ny o N g a b o w a pau s o r e i r a i s u cl k a r i y a m a h a n i k u r a g a e sh I t a

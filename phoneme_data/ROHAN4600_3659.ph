@@ -1,0 +1,1 @@
+s o n o b a i n a r i g a pau f a i r u a r o k e e sh o N t e e b u r u n i m i e t e k i m a sh I t a

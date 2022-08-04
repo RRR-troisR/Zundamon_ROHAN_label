@@ -1,0 +1,1 @@
+n e z u m i g a py o k o N t o k a o o d a sh I t a n o d e pau e e h e e w a b i cl k u r i sh I t a

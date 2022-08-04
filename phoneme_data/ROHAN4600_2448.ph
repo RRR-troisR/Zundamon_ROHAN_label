@@ -1,0 +1,1 @@
+s o j a w a k U ch i b e t a d e s U k a r a n e e

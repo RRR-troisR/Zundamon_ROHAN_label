@@ -1,0 +1,1 @@
+k u u w a s a m a z a m a n a h I t o n i ts U k a w a r e pau h I t o ch i g a i d e a y a u i m e n i a i m a sh I t a

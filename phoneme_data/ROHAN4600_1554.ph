@@ -1,0 +1,1 @@
+e e d e r u w a i s u y a p e ch u n i a n o k a g u w a sh i s a g a pau b i k o o o k U s u g u r u

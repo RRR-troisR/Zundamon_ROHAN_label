@@ -1,0 +1,1 @@
+sh a r i y a a p i N g a t a b a t a o b a k u g a i sh i pau ch o o b u g a h e k U t a a r u t o h o b o h I t o sh i i t o sh i cl t a

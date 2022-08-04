@@ -1,0 +1,1 @@
+k u a b e g i o t a b e t a r a pau y o y o g i e k i d e hy u u z u t o k a e sh i N o m i y o o

@@ -1,0 +1,1 @@
+sh a r e v u w a pau ky u r u ky u r u o t o g a n a r u r i y u u o m a n a b u

@@ -1,0 +1,1 @@
+t o cl t o r i s a ky u u d e v u r a a N gy e r i t o m a ch i a w a s e pau k U t o u z a u t o m o g o o ry u u sh I t a

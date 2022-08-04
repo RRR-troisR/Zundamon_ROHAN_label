@@ -1,0 +1,1 @@
+p e cl t o g a k U s a r i k a r a h a n a r e t a k a r a t o pau k a d o n i b u j o k u sh I ch a d a m e d e sh o

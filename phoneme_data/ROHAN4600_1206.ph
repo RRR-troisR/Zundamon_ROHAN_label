@@ -1,0 +1,1 @@
+k o n o ky o r i d e a r e b a pau r e e d a a o sh o o sh a s a r e r u sh i N p a i w a a r i m a s e N

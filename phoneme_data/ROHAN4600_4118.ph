@@ -1,0 +1,1 @@
+s u m a s a N w a pau w o sh u r e cl t o n i k o d a w a cl t e o r i pau sh o o r u u m u m e g u r i n o h i b i d a

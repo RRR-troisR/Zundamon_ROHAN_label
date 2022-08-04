@@ -1,0 +1,1 @@
+j u b a k u d e k a o g a k o w a b a r u g u o ny u r u d a g a pau r i cl p a n i y a r i t o g e m a s U y o

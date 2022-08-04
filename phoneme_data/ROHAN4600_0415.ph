@@ -1,0 +1,1 @@
+sh a b a n i d e t a y a k u z a g a pau r i ch i g i n i k e e s a ts u e a i s a ts u n i m u k a i m a s U

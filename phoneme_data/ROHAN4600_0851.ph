@@ -1,0 +1,1 @@
+z u b i g u ny e f u w a pau k u r o m u ny e j i i sh u d e j u N sh o k u sh I t a t o pau u k a g a cl t e m a sh I t a

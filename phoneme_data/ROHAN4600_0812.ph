@@ -1,0 +1,1 @@
+i m i g a w a k a r a n u t e i sh i cl t e t a N g o pau ty o o d o n o n a r a w a k a r u k a m o

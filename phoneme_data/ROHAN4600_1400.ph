@@ -1,0 +1,1 @@
+w a k a t e j u N ky o o j u g a pau sh a t o o r a t u u r u t o ch i i z u o t a sh i n a m u

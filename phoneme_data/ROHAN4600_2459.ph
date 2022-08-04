@@ -1,0 +1,1 @@
+b u g i y o m u w a pau s U k u i z u d e r a N n a a o k a e sh i m a sh I t a

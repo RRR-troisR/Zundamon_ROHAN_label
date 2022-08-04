@@ -1,0 +1,1 @@
+e b a N s u w a pau y u d e N o m i n a g a r a pau k u o o ts U t o k e e n o g e N r i o m a n a b u

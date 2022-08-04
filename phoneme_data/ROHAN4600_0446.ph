@@ -1,0 +1,1 @@
+s o o k e n o k a t a g a t a w a pau b e cl sh I ts u d e k U ts u r o g u y a k U s o k u d e s U

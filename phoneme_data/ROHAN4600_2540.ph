@@ -1,0 +1,1 @@
+m a ts u s a k a gy u u b a k a r i t a b e pau ky e r e w a sh I t a g a k o e t a

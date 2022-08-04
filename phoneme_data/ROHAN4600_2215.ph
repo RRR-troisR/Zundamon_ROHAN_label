@@ -1,0 +1,1 @@
+f a ts i o r i n o p i a n o w a pau h I k i k a t a d e b a k e m a s U

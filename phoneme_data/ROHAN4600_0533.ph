@@ -1,0 +1,1 @@
+b o k U s a a n i py u a w o o t a a o k u b a r u k I k a k u w a pau s e e ky o o d a cl t a

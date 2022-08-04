@@ -1,0 +1,1 @@
+h a d e n a m i z u g i n o gy a r o cl p u w a pau p u r a i b e e t o p u u r u d e y u r a y u r a y u r e r u

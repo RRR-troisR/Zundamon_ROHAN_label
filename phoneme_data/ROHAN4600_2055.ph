@@ -1,0 +1,1 @@
+g a r o o n i pau e p i y a k U s a n o e o k a z a r i m a sh o o

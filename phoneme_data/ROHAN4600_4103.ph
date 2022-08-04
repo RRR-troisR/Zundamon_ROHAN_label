@@ -1,0 +1,1 @@
+r i d i a g a k a t a y a b u r i d a t o w a pau m i t a m e t o n o gy a cl p u g a h a g e sh i i

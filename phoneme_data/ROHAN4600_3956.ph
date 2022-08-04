@@ -1,0 +1,1 @@
+b u j o k U s a r e t a k o t o m o pau gy a k U t e N n o h a cl s o o d e u k e t o m e t e m i y o o

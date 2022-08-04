@@ -1,0 +1,1 @@
+ch o cl t o n i i ch a N pau b e r u j u i s u s a k u n o k a w a b a cl g u g a pau o k a i d o k u d e s U y o

@@ -1,0 +1,1 @@
+ts i cl t o g u r o cl g e n o n u sh i w a pau k i g a o z e r o n i s u r u k a ts u d o o o sh i j i s u r u

@@ -1,0 +1,1 @@
+ts i r u hy a a w a pau sh a ky o o d e sh u u ch u u ry o k u o n o b a s u

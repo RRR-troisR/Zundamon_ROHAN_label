@@ -1,0 +1,1 @@
+a s o k o d e k e t a t a m a sh i k u pau ty a a ty a a dy a a dy a a t o n a i t e i r u pau t o r i n o sh u b e ts u g a sh i r i t a i

@@ -1,0 +1,1 @@
+k u o cl p a m a k i n o ry a k u r e k i w a h a n a y a k a d a g a pau g e k o d e s a k e g u s e g a h i d o i

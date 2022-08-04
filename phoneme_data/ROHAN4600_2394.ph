@@ -1,0 +1,1 @@
+j u e r i i o ch e r u ny a a g o n i o k u r u

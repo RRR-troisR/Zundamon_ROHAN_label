@@ -1,0 +1,1 @@
+b a t u f U ch i n a w a pau i k u j i n i ts U k a r e t a

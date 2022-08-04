@@ -1,0 +1,1 @@
+t e N j o o u r a o ky o r o ky o r o m i m a w a sh I t e pau w a n a n i ky a N d i o s e cl t o s u r u

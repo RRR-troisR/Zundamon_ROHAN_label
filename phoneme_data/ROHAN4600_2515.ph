@@ -1,0 +1,1 @@
+v e r u ch e cl r i n o v o r o N ts o f u g a pau gy a g u d e w a r a u

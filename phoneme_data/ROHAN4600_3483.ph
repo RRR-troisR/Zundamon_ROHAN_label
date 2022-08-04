@@ -1,0 +1,1 @@
+y a m a t o k u N w a pau ry u u g a k u g o n i p e b e r a a ny o e n o sh u u sh o k u o pau ts u y o k U k i b o o sh I t e m a s U

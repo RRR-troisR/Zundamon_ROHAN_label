@@ -1,0 +1,1 @@
+p a d u a n i a r u r e g e e ts i t a k u n o k e N s e ts u w a pau py u u py u u ch o o t e i N n i m a k a s e t e m a s U

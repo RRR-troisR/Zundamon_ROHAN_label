@@ -1,0 +1,1 @@
+s o cl ch o k u n i pau a n a t a t o f i cl sh a a n o n a k a n i pau h i b i g a h a i r u k o t o o y u u ry o sh I t e m a s U

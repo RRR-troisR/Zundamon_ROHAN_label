@@ -1,0 +1,1 @@
+b u ts u g i o k a m o sh I t a g a pau p u r o g u r a m u n o i sh o k U t o d e b a cl g u w a pau p e t o r o o sh e e f i ch i n i m a k a s e r u

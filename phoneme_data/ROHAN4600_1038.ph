@@ -1,0 +1,1 @@
+k i my o o n a b a sh o n i t a ts u z e d o u o pau hy a k u m e e t o r u s a k I k a r a s o g e k I sh i pau sh I t o m e m a sh I t a

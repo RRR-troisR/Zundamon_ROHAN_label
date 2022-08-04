@@ -1,0 +1,1 @@
+p o p e t i g a y u u g u r e n i pau gy o y u n o y u m a k u o pau y u m i d e y u cl k u r i y a b u r u

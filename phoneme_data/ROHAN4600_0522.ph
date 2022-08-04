@@ -1,0 +1,1 @@
+h e e sh a n o sh a sh o k u pau d e z a a t o n o ky a r a m e r u sh o k o r a w a z e cl p i N d a z e

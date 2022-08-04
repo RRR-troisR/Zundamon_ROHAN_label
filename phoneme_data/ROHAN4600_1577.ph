@@ -1,0 +1,1 @@
+k a n o j o w a py a py a cl t e a d a n a d e pau n e j i r o w a h a n o o f a d e a cl t e r u

@@ -1,0 +1,1 @@
+u r u N g u u g a w a g a k a N k a ts u n o b u sh o e pau sh o z o k U s u r u n o w a h a j i m e t e k a n a

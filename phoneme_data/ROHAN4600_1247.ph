@@ -1,0 +1,1 @@
+f a N t u cl ts i w a pau u r u w a sh i i m i n a r i d e h I t o b i t o o m i ry o o sh i m a sh I t a

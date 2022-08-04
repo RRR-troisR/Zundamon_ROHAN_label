@@ -1,0 +1,1 @@
+s a N by a k u d a i n o p a j e r o k a pau sh i n u k a n o n i sh a t a k u i ts u d e pau p i N ch i d a z e

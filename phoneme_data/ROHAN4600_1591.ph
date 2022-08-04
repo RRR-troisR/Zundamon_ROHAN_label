@@ -1,0 +1,1 @@
+g u u i n e cl z u n o g u N t a i w a r e N p e e n i y o n e N n a k u pau sh u N g e N t o d e N sh o o s a r e r u

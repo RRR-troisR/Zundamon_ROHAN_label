@@ -1,0 +1,1 @@
+ky o k U sh o t e k i n a i t a m i w a pau r e e ky a k U sh i i t o d e ch o k U s e ts U h i y a sh i m a s U

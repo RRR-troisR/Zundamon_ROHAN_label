@@ -1,0 +1,1 @@
+a r e pau sh a b u sh a b u n o sh o k u z a i w a pau t e e b u r u n i o i t a t o k i o k u sh I t e t a n o d e s U g a

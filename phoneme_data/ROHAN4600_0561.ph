@@ -1,0 +1,1 @@
+z o p e t i w a h a r a o m i t a sh i pau m a N z o k u g e n i ch i cl p u o sh I h a r a cl t a

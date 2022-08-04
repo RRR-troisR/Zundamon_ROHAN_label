@@ -1,0 +1,1 @@
+s a o t o m e w a pau k u a a t o n e m u s o o n i a k u b i o sh i n a g a r a m o pau n i N m u o s u i k o o sh I t a

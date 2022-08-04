@@ -1,0 +1,1 @@
+g u a r u t i e e r o n o gy o o s e k i o pau h I t o k o t o d e r o N py o o s u r e b a i m a i ch i

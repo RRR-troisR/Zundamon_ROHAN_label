@@ -1,0 +1,1 @@
+k u ny u cl p u f a a n o sh i g o t o g a t o d o k o o r i pau y u sh i m e N sh o k u n i n a r i k a n e n a i

@@ -1,0 +1,1 @@
+f u y u u r i k u w a pau k i n o k o t o k a i s o o m i cl k U s u n o m a r i n e g a k o o b u ts u d e pau k o N b u t o e n o k i o t o k u n i k o n o m u

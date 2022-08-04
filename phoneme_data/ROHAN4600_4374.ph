@@ -1,0 +1,1 @@
+b o r i sh e b i k i n o h a N k o o n i y o r i pau w a g a y a w a k a i j i N n i k i sh I t a

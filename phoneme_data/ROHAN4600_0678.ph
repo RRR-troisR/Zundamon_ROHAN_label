@@ -1,0 +1,1 @@
+hy a hy a hy a t o w a r a i n a g a r a pau j e e k o b i i t o y o m o y a m a b a n a sh i n i pau h a n a o s a k a s e m a sh I t a

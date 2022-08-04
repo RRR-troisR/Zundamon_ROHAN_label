@@ -1,0 +1,1 @@
+z e v u w a pau m e N e k I f u k a ts u z a i n i t a y o r u

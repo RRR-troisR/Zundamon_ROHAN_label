@@ -1,0 +1,1 @@
+k o n o i k U s a d e n o k o o s e k i o t a t a e pau j u u m a N g o k u g a k a sh I s a r e m a sh I t a

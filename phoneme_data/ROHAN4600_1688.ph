@@ -1,0 +1,1 @@
+b a r e i sh o n o t a N sh u u w a w a r u k u n a i t o pau p i m u w a r i k I s e ts U sh i m a sh I t a

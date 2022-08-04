@@ -1,0 +1,1 @@
+hy u u m a n i s U t o n o w o r u sh u w a pau a r u j i k o d e g e N m e ts U sh i pau hy u u m a n i z u m u t o s e k i b e ts u sh I t a

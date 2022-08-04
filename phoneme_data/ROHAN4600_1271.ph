@@ -1,0 +1,1 @@
+t e n i k i z u a t o o m o ts u o t o k o g a pau ts a i ts e N t o a i s a ts U sh i pau t a ch I s a r i m a sh I t a

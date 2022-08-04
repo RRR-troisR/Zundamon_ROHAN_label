@@ -1,0 +1,1 @@
+s o ry a a b e cl ts e cl k a y a w e g u a N g a h e N g u u k a w a pau m i n a ky a w a k a r a n u y o

@@ -1,0 +1,1 @@
+g e ts u y o o b i w a pau e s U t e t i sh a N n o y u u ry e v u n a g a pau s e j u ts u g a k a r i d a

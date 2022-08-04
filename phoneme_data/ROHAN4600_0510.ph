@@ -1,0 +1,1 @@
+ch o r o n a a m o pau j o s u r i i n u g a h a n a r e t a k o t o d e pau m e g a s a m e t a d a r o

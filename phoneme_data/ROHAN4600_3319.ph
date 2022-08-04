@@ -1,0 +1,1 @@
+k i k I s e m a r u o o r a d e s U k e e t o r i N k u n i t a ts U f i gy u a a s u r i i t o n i pau s e N r i ts u o o b o e t a

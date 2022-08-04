@@ -1,0 +1,1 @@
+g u e r u f U t o o s a N k a n o m a ch i w a pau k a cl k i g a a r u g a y a g a t e s a b i r e r u

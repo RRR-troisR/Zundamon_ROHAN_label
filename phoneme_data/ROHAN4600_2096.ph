@@ -1,0 +1,1 @@
+t u u r e t o h a h a o n a k a n a o r i s a s e m a sh o o

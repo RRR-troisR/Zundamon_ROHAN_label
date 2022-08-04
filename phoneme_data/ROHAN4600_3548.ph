@@ -1,0 +1,1 @@
+k a v e ny a cl k u g a t e m a o h a b u k U t a m e pau f u y u n o g e N k a N n i m i k a N o h o o ch i sh I t e k o o r a s e t a

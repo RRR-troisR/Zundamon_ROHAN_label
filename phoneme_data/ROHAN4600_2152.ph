@@ -1,0 +1,1 @@
+ch e r u n i sh e f u w a pau z o b e N ch e e d o z a i j u u d a r o o

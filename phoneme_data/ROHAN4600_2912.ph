@@ -1,0 +1,1 @@
+b u t o u r i m u w a pau j a a n a r u n i k e e s a i s a r e t a d i o d o t o o s u n o i N t a by u u k i j i o s a g a sh i pau m a cl s a k i n i y o m u

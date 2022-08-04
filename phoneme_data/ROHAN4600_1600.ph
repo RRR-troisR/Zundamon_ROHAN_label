@@ -1,0 +1,1 @@
+t e g u j u p e r i w a pau k a g e m u sh a t o f o o t i f a i d o w a i N o n o m i k a w a sh I t a cl t e k a

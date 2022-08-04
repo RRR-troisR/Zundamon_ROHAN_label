@@ -1,0 +1,1 @@
+z o n e f e r u t o g a h e r u p u n i k u r u pau a w a i k i b o o w a m a d a s U t e k i r e n u

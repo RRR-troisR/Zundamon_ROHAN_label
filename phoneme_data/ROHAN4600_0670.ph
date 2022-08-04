@@ -1,0 +1,1 @@
+m a n i ky u a n o t a m e n i pau gy u my u sh u h a a n e n i t o ts u g e k I t o w a pau m o n o z u k i d e s U n e

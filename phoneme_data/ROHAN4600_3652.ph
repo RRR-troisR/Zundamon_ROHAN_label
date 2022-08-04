@@ -1,0 +1,1 @@
+a n o pau i k a n i m o a b a N gy a r u d o n a k e N z o o b u ts u g a pau k a n o j o n o k a f e d e s U

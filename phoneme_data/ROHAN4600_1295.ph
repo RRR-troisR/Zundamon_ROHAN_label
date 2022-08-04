@@ -1,0 +1,1 @@
+k a t a g u ch i s a N w a h e r u n i a d e pau t o o b u N w a s a p o o t o g a h I ts u y o o d e s U

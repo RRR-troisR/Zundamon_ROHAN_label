@@ -1,0 +1,1 @@
+ry o o b o n o n a i dy o o n o f u g a pau sh o t e g o n o g o d e k a N ky a k u n o d o g i m o o n u i t a

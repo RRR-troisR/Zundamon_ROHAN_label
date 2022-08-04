@@ -1,0 +1,1 @@
+h a i r e z o o o d i o k o N p o g a k o w a r e t a t o pau d i v o cl k u w a j i ch o o g i m i n i h a n a sh I t a

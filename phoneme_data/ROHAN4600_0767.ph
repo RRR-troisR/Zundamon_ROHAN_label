@@ -1,0 +1,1 @@
+b a ny o o n e n o s a k a b a d e s a k a d a r u o k o r o g a sh i pau sh a z a i sh i m a sh I t a y o

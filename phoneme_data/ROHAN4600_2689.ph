@@ -1,0 +1,1 @@
+p e v e n a a f u n o n a g a a g a r i m a sh I t a

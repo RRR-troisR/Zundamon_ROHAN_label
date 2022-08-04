@@ -1,0 +1,1 @@
+p u r o g u r a m u n o k o N p a i r u y o r i pau f a a m u w e a n o a cl p u d e e t o g a s a k i d a

@@ -1,0 +1,1 @@
+h a t a ch i d e d u r u s i o d e m a sh I t a

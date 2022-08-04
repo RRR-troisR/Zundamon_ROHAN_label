@@ -1,0 +1,1 @@
+o ch i b a g a h I k a k U t e k I s u k u n a i k u g a ts u w a pau h a k I s o o j i o k a N ry a k U k a sh I t e j i cl sh I s u r u

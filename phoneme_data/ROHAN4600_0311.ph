@@ -1,0 +1,1 @@
+y e v u r i cl ch I s a m a pau m a g u r o gy o s e N d e n o f u n a y o i w a pau n i g e m i ch i g a n a i j i g o k u d e s U

@@ -1,0 +1,1 @@
+m a N ty u y a r u v i w a pau p a a p u r u n o y u u k a r i o k a j i r i n a g a r a k a e r u

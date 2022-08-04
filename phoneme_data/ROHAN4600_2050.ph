@@ -1,0 +1,1 @@
+ch e n u n o my o o sh u w a pau y u s a b u r u n e r a i d e s U k a

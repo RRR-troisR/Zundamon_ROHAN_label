@@ -1,0 +1,1 @@
+a n a t a n o g i k o ch i n a i e g a o g a pau b o k u n o k o k o r o o t e r a sh I t e k u r e m a s U

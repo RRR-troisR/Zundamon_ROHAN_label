@@ -1,0 +1,1 @@
+r a d o w i cl k u n o t e g u ch i w a k o o my o o d a

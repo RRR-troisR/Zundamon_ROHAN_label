@@ -1,0 +1,1 @@
+y u d e t a m o y a sh i o m i z u n i h I t a sh i pau y u z u p o N z u d e t e g a r u n a o k a z u d a

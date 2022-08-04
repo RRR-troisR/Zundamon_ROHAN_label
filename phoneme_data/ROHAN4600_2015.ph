@@ -1,0 +1,1 @@
+h a sh I k a r a m i r e b a pau f u y u u r i i w a k o w a m o t e d e s u

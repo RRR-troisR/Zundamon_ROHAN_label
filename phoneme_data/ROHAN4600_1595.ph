@@ -1,0 +1,1 @@
+h e r i b e r u t o w a o o k i i s a f a i a o m i t e pau t a i d o g a hy o o h e N sh I t a

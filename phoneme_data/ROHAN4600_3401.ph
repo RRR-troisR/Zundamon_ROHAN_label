@@ -1,0 +1,1 @@
+s a cl ky o k U sh a n o b a g u w e r u w a pau a m a i m e r o d i g a t o k u i d e pau s o n o sh i N k o cl ch o o g a sh i m a u t a d e s U

@@ -1,0 +1,1 @@
+ch o o k u b a s u w a pau o s u t o m e s u g a m a i n i ch i n a N k a i m o k a w a r u t o pau ny u u s u d e y a cl t e m a sh I t a

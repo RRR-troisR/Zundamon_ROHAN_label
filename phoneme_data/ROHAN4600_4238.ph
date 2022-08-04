@@ -1,0 +1,1 @@
+ch a i k o f U s u k i i w a pau ts u g o o g a w a r u k u n a r u t o s u g u n i b a j i t o o f u u n i n a r i m a s U

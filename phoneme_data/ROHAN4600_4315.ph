@@ -1,0 +1,1 @@
+y o N g e N w a ch u u w a t e k I t e e n o j i cl k e N d a k a r a pau h a y a m e n i i d o o sh i y o o

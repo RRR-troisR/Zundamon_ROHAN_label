@@ -1,0 +1,1 @@
+gy u u gy u u z u m e n o my u u j i a m u d e pau s a cl ky u u n i g u a b a ch a o n o m u n o w a pau h a ts u d a

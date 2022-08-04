@@ -1,0 +1,1 @@
+ch a m u r e e n o ny u u gy o k u o pau s o sh I sh i m a sh o o

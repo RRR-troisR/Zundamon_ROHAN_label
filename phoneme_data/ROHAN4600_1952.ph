@@ -1,0 +1,1 @@
+d o o r o g a h o s o o s a r e pau z a N b o o n i w a b o j o r e e n u u b o o d e i w a cl t a

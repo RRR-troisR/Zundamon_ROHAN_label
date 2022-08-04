@@ -1,0 +1,1 @@
+o o g a t a k o N t e n a s e N n o z a sh o o j i k o o u k e t e pau b u ts u ry u u n i o k u r e g a sh o o j i r u k o t o g a y o s o o s a r e r u

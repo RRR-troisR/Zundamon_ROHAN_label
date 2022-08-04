@@ -1,0 +1,1 @@
+s u k a s a N w a pau r e by u u o sh i r a b e t e by a N by a N m e N o ch u u m o N sh i m a sh I t a

@@ -1,0 +1,1 @@
+b u ry u cl s e r u t o n o o b o e g a k i n i pau k o o o ts u h e e o ts U k a cl t e m o pau w a k e w a k a r a N t o o m o i m a s U y o

@@ -1,0 +1,1 @@
+j i cl t e o pau k e e j i n o p I k u t o g u r a m u n i sh I t a i n o d a

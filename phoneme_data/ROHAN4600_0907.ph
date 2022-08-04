@@ -1,0 +1,1 @@
+n a m a e n i py u g a ts u k u m e e sh u o s a g a sh I t e r u n o d a g a pau g o z o N j i n a i k a

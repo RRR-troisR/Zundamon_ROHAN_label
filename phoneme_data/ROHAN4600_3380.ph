@@ -1,0 +1,1 @@
+p u r e t I hy a g a pau s i i s i N t o n o a m i m o n o t a i k e ts u o k o k o r o m i pau a cl s a r i k a e r i u ch i n i s a r e t a

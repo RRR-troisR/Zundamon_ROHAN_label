@@ -1,0 +1,1 @@
+ry u u k o o n i u t o k U t e pau t o r e N d i d o r a m a d a cl t e m i t a t a m e sh i g a n a i

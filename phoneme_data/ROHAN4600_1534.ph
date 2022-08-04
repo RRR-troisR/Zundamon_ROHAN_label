@@ -1,0 +1,1 @@
+y e g i sh e w a pau m u g i ch a n i k o k U t o o o i r e t e n o m u n o g a s U k i d a

@@ -1,0 +1,1 @@
+ky u u ky o b u t a i g a ky a N s e r u t o n a r i pau w i r a s a m a m o r i cl p U k u n o g o y o o s u d a

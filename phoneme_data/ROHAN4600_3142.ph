@@ -1,0 +1,1 @@
+v o dy a n o o v a w a pau r o r o ny o n o g o o m a N s a n i h a r a w a t a g a n i e k u r i k a e r i pau k o r a sh i m e y o o t o k a k U s a k u sh I t a

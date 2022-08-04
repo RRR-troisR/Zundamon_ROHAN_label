@@ -1,0 +1,1 @@
+w i k u r i f u g a pau ky a d o o k a ts u y o o sh i by o o g a sh I t a k u w i cl t i o o pau p u r o j e k U t a a d e t o o e e s u r u

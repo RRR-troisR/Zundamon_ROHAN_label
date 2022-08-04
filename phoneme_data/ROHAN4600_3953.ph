@@ -1,0 +1,1 @@
+k a i e N j i k a N o h a y a m e r u n a N t e pau my u r a a k a r a k i i t e i n a i z o

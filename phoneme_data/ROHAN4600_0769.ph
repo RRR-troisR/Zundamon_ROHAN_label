@@ -1,0 +1,1 @@
+ty o w a h a N g u r u n i d e t e k u r u m o j i d e a r u k o t o o pau y a t o o g a o sh i e t e k u r e t a

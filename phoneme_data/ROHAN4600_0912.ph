@@ -1,0 +1,1 @@
+n a m i d a o p o r o p o r o k o b o sh i pau j o a k i m u g a t a n o m u t o w a pau y o cl p o d o d a r o o

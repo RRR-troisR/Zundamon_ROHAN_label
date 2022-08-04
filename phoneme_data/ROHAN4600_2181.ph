@@ -1,0 +1,1 @@
+dy u f u r o t o y e d o r i k u n o i e w a pau a z e k u r a z u k u r i d a z e

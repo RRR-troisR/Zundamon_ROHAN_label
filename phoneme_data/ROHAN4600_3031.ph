@@ -1,0 +1,1 @@
+p e sh e w a k o o h a i o k a b a i pau s a i g o m a d e r i cl p a n i sh o k u m u o h a t a sh i pau j u N sh o k U sh i m a sh I t a

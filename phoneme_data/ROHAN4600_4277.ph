@@ -1,0 +1,1 @@
+j o N d u w a pau sh u cl ch o o s a k i d e k a cl t a z o o r i o pau o m i y a g e n i sh i m a sh I t a

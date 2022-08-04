@@ -1,0 +1,1 @@
+r o sh i a d e ch e b u r a a sh I k a n o n i N k i w a pau k a N t a N n i w a k a k o o sh i n a i t o o m o i m a s U

@@ -1,0 +1,1 @@
+a m a cl ty a g a pau r o cl ts o n o i e n i i s o o r o o sh I t e r u y o

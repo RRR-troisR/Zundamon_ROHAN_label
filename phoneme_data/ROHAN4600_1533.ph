@@ -1,0 +1,1 @@
+s u i s o o n i w a pau g u cl p i i t o p u r a t i g a y u r a m e k i o y o i d e r u

@@ -1,0 +1,1 @@
+t a r o f u y u a g a pau p I k a p I k a d e a t a r a sh i i ts u r u g i o k a cl t a r a sh i i z e

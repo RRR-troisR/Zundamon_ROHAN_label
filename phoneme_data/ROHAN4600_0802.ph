@@ -1,0 +1,1 @@
+t a d a sh i i k i r o k u w a pau by o o s o k U h a cl py a k u m e e t o r u d e sh I t a

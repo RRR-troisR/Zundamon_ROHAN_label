@@ -1,0 +1,1 @@
+ch u b a w a pau s a N j u n o o k u r i m o n o n i pau y a m a b u k I sh o k u n o h a n a t a b a o e r a b i m a sh I t a

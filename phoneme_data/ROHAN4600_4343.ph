@@ -1,0 +1,1 @@
+j a N n u w a y a r i t e n o k a b u t o r e e d a a t o sh I t e pau s e k a i t e k i n i y u u m e e d a

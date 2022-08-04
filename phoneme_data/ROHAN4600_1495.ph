@@ -1,0 +1,1 @@
+h i g i o s a z u k e r u n a r a pau g u i r i i k a d e i py u r e n o d o ch i r a k a d e s U n a

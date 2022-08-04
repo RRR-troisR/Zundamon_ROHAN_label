@@ -1,0 +1,1 @@
+dy o o s a N g a d a m i N o m u s a b o r u j i k a N n i pau h e r u g e w a h o i cl p U k u r i i m u o ts U k u r u

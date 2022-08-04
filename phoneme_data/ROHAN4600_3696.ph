@@ -1,0 +1,1 @@
+z u k a N d e m i t a m a ch U p i ch u y a pau t I t i k a k a k o g a pau k i o k u n i k i z a m a r e t e i m a s U

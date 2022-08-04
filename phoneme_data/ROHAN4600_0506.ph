@@ -1,0 +1,1 @@
+v a cl k a r i cl ts o d e pau h e r i o t o r o o p u n o k e N ky u u o k i w a m e t a

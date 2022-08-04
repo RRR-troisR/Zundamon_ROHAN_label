@@ -1,0 +1,1 @@
+p i ny a a t a o s e e s a k u sh I s u i j a k u sh I t a g a pau k a y u t o p a i n a cl p u r u d e k a i f U k u sh I t a

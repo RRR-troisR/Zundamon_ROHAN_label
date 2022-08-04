@@ -1,0 +1,1 @@
+j a s u m i N g a m i t a n o w a pau u ch u u k u u k a N n i t a d a y o u f a N t a j i cl k u n a y u m e d e s U k a

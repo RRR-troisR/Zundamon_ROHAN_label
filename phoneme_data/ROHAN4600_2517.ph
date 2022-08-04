@@ -1,0 +1,1 @@
+y o d a N d a g a pau t o r i n o n a k i g o e g a ty o o ty o o t o k I k o e r u

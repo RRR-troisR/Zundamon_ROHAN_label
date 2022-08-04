@@ -1,0 +1,1 @@
+k a n o j o w a s a i e N d a t o m o t e h a y a s a r e r u g a pau ky o z o o d e a r u

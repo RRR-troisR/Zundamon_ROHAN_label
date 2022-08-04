@@ -1,0 +1,1 @@
+g e k o n o d i a ny e n i pau o m i k i o y a cl ch a d a m e d e s U

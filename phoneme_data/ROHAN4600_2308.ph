@@ -1,0 +1,1 @@
+m i cl ch e r u n o z a y u u n o m e e w a pau n a s e b a n a r u d a

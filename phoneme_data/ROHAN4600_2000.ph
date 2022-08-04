@@ -1,0 +1,1 @@
+n u n o o a z a y a k a n i i r o d o r u n a r a pau v o j i i sh e k u n o o sh i e g a h o sh i i n a

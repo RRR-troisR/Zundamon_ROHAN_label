@@ -1,0 +1,1 @@
+h a d o m e g a k I k a n u a cl k i r a s e ts u n o sh o b a ts u pau z e h I t o m o o m a k a s e a r e

@@ -1,0 +1,1 @@
+dy a k o v o n o k e N ry o k U sh a g a pau g u w i n e s u n o ch i m e e t e k i n a s U ky a N d a r u o m o m i k e s u y o o pau m e e r e e sh i m a sh I t a

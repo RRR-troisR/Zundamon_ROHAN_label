@@ -1,0 +1,1 @@
+ty u i r u r i i k o o e N d e a k i n a u n a N t e pau d a r e g a k a N g a e t a n o d e s U k a

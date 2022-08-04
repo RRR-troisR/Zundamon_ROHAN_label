@@ -1,0 +1,1 @@
+k i m i w a pau ky a N k u a N j i k a r a p u r a i b e e t o j e cl t o d e k i t a pau b o r u j e s u d a n e

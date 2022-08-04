@@ -1,0 +1,1 @@
+gy o k a k u ry o u g a h e cl t a n o w a pau g i j u ts u d e w a n a k u gy o gy o o z e N t a i n o n a y a m i d a z o

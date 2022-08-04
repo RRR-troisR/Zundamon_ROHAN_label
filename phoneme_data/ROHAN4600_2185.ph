@@ -1,0 +1,1 @@
+r a f a f e i r a w a pau k o m o N n o b a sh i y u ty u r u k u n i n a k I ts u i t a

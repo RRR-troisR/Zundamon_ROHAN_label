@@ -1,0 +1,1 @@
+s e e s a k U sh a i g a i g a pau t u u r u b i y o N n i t e o k u w a e r u k o t o w a pau g o h a cl t o t o s a r e r u

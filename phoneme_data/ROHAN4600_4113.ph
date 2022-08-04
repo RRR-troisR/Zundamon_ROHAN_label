@@ -1,0 +1,1 @@
+d a i g a k u r e b e r u n o b i b u N s e k i b u N g a pau r i k a i d e k i r u s o o d a

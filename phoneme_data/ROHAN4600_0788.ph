@@ -1,0 +1,1 @@
+i sh i o m i g a k u g i j u ts u w a pau sh i n o b i n i n a r u t a m e n i h i cl s u d e s U y o

@@ -1,0 +1,1 @@
+m o n o k a g e n i sh i n o b i pau sh i b i r e o k i r a s a z u ch o k u z e N m a d e n e b a r o o z e

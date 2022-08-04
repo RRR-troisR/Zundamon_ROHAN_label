@@ -1,0 +1,1 @@
+k a a ty a w a pau h i g i sh a n i k a k a w a r u n o d e pau ch u u i b u k a k u m i h a cl t e k u r e

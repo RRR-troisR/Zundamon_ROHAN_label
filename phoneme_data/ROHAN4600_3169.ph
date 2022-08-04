@@ -1,0 +1,1 @@
+by o r u g e w a g e k i m u d e g u r o cl k i i d a g a pau s o k o m a d e o i ts u m e t a y a t o i n u sh i n i pau ry o o sh i N n o k a sh a k u w a n a i

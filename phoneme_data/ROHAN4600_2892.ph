@@ -1,0 +1,1 @@
+N g a k u u u t u u g a n a k u sh I t a b i h i N w a pau p o cl ts u a a r i o pau e d u n i i t i d e m i ts U k a r i m a sh I t a

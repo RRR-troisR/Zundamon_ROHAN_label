@@ -1,0 +1,1 @@
+ky o o k o s o pau d o k o k a r a a m a m o r i sh I t e r u n o k a pau ts U k i t o m e t e m i s e m a s U

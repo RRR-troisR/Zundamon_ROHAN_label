@@ -1,0 +1,1 @@
+f a sh i i k i n o sh u b i g a pau my o o n i ch i g u h a g u d a

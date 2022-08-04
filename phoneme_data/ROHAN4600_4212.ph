@@ -1,0 +1,1 @@
+b u ry u cl s e r u pau s o r o s o r o s a b i ts u i t a k a m i s o r i n o h a o i r e k a e m a s e N k a

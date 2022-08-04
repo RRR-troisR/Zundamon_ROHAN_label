@@ -1,0 +1,1 @@
+o o n o dy u u t i i w a pau s o o z o o o z e cl sh i m a s u

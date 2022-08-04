@@ -1,0 +1,1 @@
+y e hy e r u g a y o n a b e sh I t e ch i N j u ts U sh o o sh i cl p I ts u sh I t a g a pau k I ky a k U s a r e t a

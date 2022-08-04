@@ -1,0 +1,1 @@
+sh o k u b a d e k u a j i m o d o g a t a o r e t a t o k i i t a g a pau y a cl p a h i h e e sh I t e t a N d a n a

@@ -1,0 +1,1 @@
+s a i v a cl ts o N n o u r i a g e r u i k e e g a pau t o cl p u n i n a cl t a

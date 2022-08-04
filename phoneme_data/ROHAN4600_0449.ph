@@ -1,0 +1,1 @@
+e cl f e r u f i N g a a n i y o r u t o pau j e m a w a k a r e ts u n a h I t o d a s o o d e s U

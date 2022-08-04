@@ -1,0 +1,1 @@
+j u r e cl p u o pau ch e k e cl ch i n i t o d o k e t e k u d a s a i

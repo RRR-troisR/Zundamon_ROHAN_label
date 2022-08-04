@@ -1,0 +1,1 @@
+r e gy e n i g a pau o b o r o g e n i sh i z u k u o n a g a m e t e m a s U

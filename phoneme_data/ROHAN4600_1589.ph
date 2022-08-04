@@ -1,0 +1,1 @@
+ch o r e g i n o a j i ts U k e g a i ts u m o t o ch i g a i pau t o m a d o i n a g a r a m o m a N z o k u sh I t a

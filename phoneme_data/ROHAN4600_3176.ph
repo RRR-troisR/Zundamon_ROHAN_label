@@ -1,0 +1,1 @@
+b i ry a r e t o d i n o f u w a pau k e e g o t o k e N j o o g o n o ts U k a i k a t a g a g u ch a g u ch a d e pau h i y a h i y a s u r u

@@ -1,0 +1,1 @@
+n i h o N g o n i pau ty a n o ts u k U k o t o b a w a n a i g a pau k i e t a n o k a n a k a cl t a n o k a w a k a r a n u

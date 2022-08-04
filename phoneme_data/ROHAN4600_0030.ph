@@ -1,0 +1,1 @@
+b e ny a m i i n o w a pau dy u u k u d a i g a k u n o k a r i ky u r a m u o t o r i y o s e t a

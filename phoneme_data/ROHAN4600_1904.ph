@@ -1,0 +1,1 @@
+a a k u e cl t o n o p e e p a a o pau h a d e n i g o y a k u sh I t a m a n u k e w a d a r e d a

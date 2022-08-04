@@ -1,0 +1,1 @@
+k o o y o o k a r a pau m e d o gy e sh e g i h a a z a o h i m o t o k u

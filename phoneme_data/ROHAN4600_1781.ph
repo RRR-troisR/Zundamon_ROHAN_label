@@ -1,0 +1,1 @@
+p u ts o N ts i n o t a b i n i w a i cl t a k e d o pau s o t o g a w a k a r a n a g a m e t a d a k e d a y o

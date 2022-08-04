@@ -1,0 +1,1 @@
+t a r u k u i n i u s u w a pau t o o y a k U k i k a N g a n o b i t e pau h I k i ts u z u k I f a b o w a a r u g a sh o h o o s a r e m a sh I t a

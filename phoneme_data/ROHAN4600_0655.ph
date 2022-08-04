@@ -1,0 +1,1 @@
+g u N k a n o sh o o w i N d o o o pau g e N j u u n i k e e g o sh I t e r u y o o d e s U

@@ -1,0 +1,1 @@
+k o e d a m e w a e d o j i d a i n i r i y o o s a r e t a g a pau g e N d a i d e w a s u d e n i s U t a r e t a s e ts u b i d a

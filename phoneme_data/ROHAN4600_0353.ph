@@ -1,0 +1,1 @@
+j u b a k u o t o k u n a r a pau ry e r u b a a d e n o sh e my a a k a o pau t a y o r i n a s a r e

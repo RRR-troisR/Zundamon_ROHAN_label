@@ -1,0 +1,1 @@
+h e r u sh i i n a ry o o r i d e d a i e cl t o sh i pau y o s e e o t a n o sh i m u k o t o n i i t a s u

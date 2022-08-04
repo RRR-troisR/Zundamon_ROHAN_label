@@ -1,0 +1,1 @@
+t a a r a my a e w a s a m u s a n i y o w a k u pau n a N ky o k u n i d e m o i k o o m o n o n a r a pau n a n a by o o d e k o g o e r u d e sh o o

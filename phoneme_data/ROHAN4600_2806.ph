@@ -1,0 +1,1 @@
+gy u N ts u b u r u k u d e pau u r u sh e r a n i k U ts u j o k u o u k e t a n a r a pau k I t a e a g e b a i n i sh I t e k a e sh i m a sh o o

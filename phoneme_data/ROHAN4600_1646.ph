@@ -1,0 +1,1 @@
+t u v i e t o j a a b i s u n o k e cl t o o pau d o cl ch i g a k a ts U k a k a k e m a sh o k a

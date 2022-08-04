@@ -1,0 +1,1 @@
+k o r e w a p a z u r u d e d o r o n u m a n i h a m a r i pau p o r o p o r o n a k u dy u b e r u j e n o z u

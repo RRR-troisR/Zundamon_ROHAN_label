@@ -1,0 +1,1 @@
+s a m a z a m a n a f i i r u d o d e pau s u g u r e t a g i j u ts u o m o ts u g a k U s e e g a pau k a ts u y a k u sh I t e i m a s U

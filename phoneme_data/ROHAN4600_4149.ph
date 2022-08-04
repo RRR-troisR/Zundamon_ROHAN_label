@@ -1,0 +1,1 @@
+k a i w a s u r e n o n a i y o o pau k u e e k a a o o t o m i i r u o pau m a cl s a k i n i k a u

@@ -1,0 +1,1 @@
+p e cl ch a N k o d a cl t a p a N k i j i g a pau j o j o n i f U k u r a N d e y u k i m a s U

@@ -1,0 +1,1 @@
+e e t o pau k o n o k e ch a cl p u w a y a y a sh o cl p a i g a pau u r e r u d a r o o n e

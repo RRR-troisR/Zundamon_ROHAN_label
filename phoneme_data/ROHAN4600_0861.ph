@@ -1,0 +1,1 @@
+b o d i ch e cl k u d e pau k o g a t a s U p i i k a o t o r u b e k I k a h a n a sh I t e r u

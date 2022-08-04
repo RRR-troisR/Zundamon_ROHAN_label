@@ -1,0 +1,1 @@
+s o n o t e w a pau h i t o m e s u j i d a g a k a N sh u d e pau k o n o ch o cl t o sh I t a m i s u g a h a i ch a k u n i n a r u s e cl s e N d a cl t a

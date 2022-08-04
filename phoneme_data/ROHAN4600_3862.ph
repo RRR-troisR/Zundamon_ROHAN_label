@@ -1,0 +1,1 @@
+t a k U s a N n o w a k o o d o g a pau m a r i t o cl ts o o t a b e a r u i t e i m a s U

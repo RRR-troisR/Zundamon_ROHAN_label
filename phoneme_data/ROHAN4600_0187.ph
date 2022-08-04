@@ -1,0 +1,1 @@
+ts e r u k u v e ny a k u n o p a n o r a m a o pau s e p i a n o f i r u m u n i y a k I ts u k e r u

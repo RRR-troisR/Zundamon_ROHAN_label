@@ -1,0 +1,1 @@
+ts a a r i n o s o k u i sh I k i g a pau o g o s o k a n i o k o n a w a r e t e i m a s U

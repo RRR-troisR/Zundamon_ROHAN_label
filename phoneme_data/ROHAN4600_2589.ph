@@ -1,0 +1,1 @@
+a y o o dy a a d e pau ky o k a N o z o o s e N ch u u r a sh i i

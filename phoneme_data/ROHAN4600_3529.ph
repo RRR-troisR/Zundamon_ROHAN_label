@@ -1,0 +1,1 @@
+a r u t a N ts e ts e g u w a pau s a d o o b u n i d e sh i i r i sh i pau k i m o n o y a s e e z a n a d o n i m o n a r e t e k i t a

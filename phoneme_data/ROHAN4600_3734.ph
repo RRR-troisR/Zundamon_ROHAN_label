@@ -1,0 +1,1 @@
+gy o o gy o o sh i i b i b u r a f o N s o o sh a m o pau ky u u k e e j o d e r e e ky a k U ch u u d a

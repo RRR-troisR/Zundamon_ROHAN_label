@@ -1,0 +1,1 @@
+k o s o k u n a t e d e r o z u n i y o i o a z a m u k e t a t o sh I t e m o pau s o n o g o w a sh u r a b a d a z e

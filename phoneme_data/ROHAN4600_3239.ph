@@ -1,0 +1,1 @@
+h a by a r i m a n a s a N pau a i s a ts u w a b o s o b o s o t o k o g o e d e w a n a k u pau o o k i n a k o e d e g e N k i y o k u d e s U y o

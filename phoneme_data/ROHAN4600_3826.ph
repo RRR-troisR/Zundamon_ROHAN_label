@@ -1,0 +1,1 @@
+g e N t a w a pau v o r u k e e n o g a a ts u i y o o g a N o f u k u n o o m i t e i m a sh I t a

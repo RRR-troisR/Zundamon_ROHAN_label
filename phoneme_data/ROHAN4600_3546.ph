@@ -1,0 +1,1 @@
+k a y o o ky o k u n o j i d a i w a pau sh i i d i i y o r i m o pau t e e p u y a r e k o o d o g a ch u u sh i N d a cl t a t o k I k u

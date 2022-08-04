@@ -1,0 +1,1 @@
+p u g u o N j u n o t e cl t o o g a pau r o o ky u u k a sh I t e i m a s U

@@ -1,0 +1,1 @@
+b i sh o o o u k a b e r u py a t o n o f u d a k e d o pau a n o z a r e g o t o o k I k e b a m u r i w a n a i n a

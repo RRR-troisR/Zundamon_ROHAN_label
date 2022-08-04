@@ -1,0 +1,1 @@
+k o t e y o o n o ch i k i N n i t o cl t e w a pau t a N j u N n a z a ts u y o o m o pau g o r a k U t o t a i s a n a i y o o d e n e

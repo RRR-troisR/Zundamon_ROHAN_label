@@ -1,0 +1,1 @@
+g u e n e s u n i k a N s u r u r e p o o t o w a pau k a k u j i d e m a t o m e t e k u d a s a i n e

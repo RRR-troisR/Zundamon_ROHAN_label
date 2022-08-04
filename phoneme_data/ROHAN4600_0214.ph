@@ -1,0 +1,1 @@
+d a r i y u u g e n o m i g a cl t e n a p u r o p o o z a r u n i pau a k i r e h a t e m a sh I t a

@@ -1,0 +1,1 @@
+s a s u g a n i pau ch a cl t o f i i r u d o t o r e e n o d a t e k o m o r i j i k e N o k a r a m e r u n o w a pau s u j i ch i g a i d a r o

@@ -1,0 +1,1 @@
+ch i k u r u g u u d e b u t a o s o d a t e m a sh o o

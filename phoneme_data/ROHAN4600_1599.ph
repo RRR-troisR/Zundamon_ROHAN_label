@@ -1,0 +1,1 @@
+j o b i i w a pau n e r i a g e t a ry u u r e e n a w a z a m a e d e pau m o k u gy o o p o k U p o k U t a t a k u

@@ -1,0 +1,1 @@
+g o k i b u r i g a f u e t a n o d e pau a r o m a n o d i f u y u u z a a d e k u j o s u r u n o j a

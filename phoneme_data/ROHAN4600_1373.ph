@@ -1,0 +1,1 @@
+py u u r i t a N n o o N n a g a pau m a cl s a o n a k a o d e a j i t o e m o d o cl t e k i t a

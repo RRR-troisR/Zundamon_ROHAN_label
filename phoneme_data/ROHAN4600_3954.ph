@@ -1,0 +1,1 @@
+s a N t e y o w a pau sh i r o i sh a ts u n i pau r a n a N ky u r a s u n o sh I sh u u o sh I t e i t a

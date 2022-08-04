@@ -1,0 +1,1 @@
+ch u ch U t o z o o r i o pau w e b u d e ch u u m o N sh i m a sh I t a

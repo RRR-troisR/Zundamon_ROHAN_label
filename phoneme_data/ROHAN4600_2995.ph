@@ -1,0 +1,1 @@
+m i ch i o k i w a m e t a m o n o w a pau a r a y u r u j a m a g a h a i cl t e m o r o k u j i k a N d e by o o k i o n a o s e r u

@@ -1,0 +1,1 @@
+k a d e N ts a g a m a d a u m a k U h i k e n a i g a pau sh i b a r a k u w a y a s a sh I k u m i m a m o cl t e h o sh i i

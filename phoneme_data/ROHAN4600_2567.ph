@@ -1,0 +1,1 @@
+p a t u d e h a b i k o r u a k U hy o o n i pau k o k o r o g a k u d a k e t a

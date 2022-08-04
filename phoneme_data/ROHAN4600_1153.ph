@@ -1,0 +1,1 @@
+ts i g a a n i n i y o r u t o pau b u z o k u n o g u t a i t e k i n a k a r i p a t a a N w a f u m e e d a z o

@@ -1,0 +1,1 @@
+ts o o g a e N z e ts u d e pau ch a o pau ty a t o h a ts u o N sh I t a k o t o d e pau g i w a k u w a sh o k u f u ts u s a r e t a

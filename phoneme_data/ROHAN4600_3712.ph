@@ -1,0 +1,1 @@
+y o k o o m u i t a sh u N k a N pau m o k u z e N n i p e N s a k i g a a cl t e n o k e z o r u

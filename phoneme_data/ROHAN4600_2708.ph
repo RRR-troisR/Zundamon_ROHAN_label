@@ -1,0 +1,1 @@
+my o f e t o pau y o j i k a N m o t o n a r i a i ts U k a r e t a

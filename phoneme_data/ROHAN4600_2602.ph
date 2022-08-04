@@ -1,0 +1,1 @@
+hy o k u g u o N w a pau n i k U sh i m i o p a w a a n i k a e m a s U

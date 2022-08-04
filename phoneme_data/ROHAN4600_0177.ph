@@ -1,0 +1,1 @@
+d e v o g u i r a s a m a pau h o N j i ts u n o d i n a a d e g o z a i m a s U

@@ -1,0 +1,1 @@
+k u a N sh I s a m a g a pau k o o ch a k u j o o t a i n o n a k a d e d i f e N s u o t o cl p a s u r u

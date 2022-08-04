@@ -1,0 +1,1 @@
+k u i z i r u ts u d e t o r e t a b u r u u b e r i i w a pau k a k u b e ts u n i u m a i

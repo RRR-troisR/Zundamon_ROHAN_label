@@ -1,0 +1,1 @@
+k a r a dy o w e d e o m a i r i s u r e b a pau g o r i y a k u g a a r u t o k I k i pau k a N k o o ky a k u g a s a cl t o o sh I t e i r u

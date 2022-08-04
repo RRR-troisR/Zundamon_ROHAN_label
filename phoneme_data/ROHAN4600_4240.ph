@@ -1,0 +1,1 @@
+k o N ny a k u m o N d o o o k u r i k a e sh I t e m o pau i m i w a n a i t o o m o w a r e m a s U

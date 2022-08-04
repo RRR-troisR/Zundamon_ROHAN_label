@@ -1,0 +1,1 @@
+m u ny o s U t o pau w e e r u z u ry o o r i o k u i m a sh o o

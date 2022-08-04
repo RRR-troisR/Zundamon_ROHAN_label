@@ -1,0 +1,1 @@
+a r i gy e r i w a pau sh u u sh o k U k a ts u d o o n o t a m e n i pau j i k o b u N s e k i o sh I t e i m a s U

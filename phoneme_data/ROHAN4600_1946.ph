@@ -1,0 +1,1 @@
+k o N p a r u ry u u n o sh i s o g a d a r e k a pau ky u b e r e w a y a m i k u m o n i sh i r a b e t a

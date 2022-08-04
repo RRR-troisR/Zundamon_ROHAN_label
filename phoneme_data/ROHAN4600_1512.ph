@@ -1,0 +1,1 @@
+my a N m a a n i a r u t e r a n o k e i d a i d e pau p a r a s U k e b u a g a ch o cl p U s u r u

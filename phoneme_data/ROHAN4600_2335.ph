@@ -1,0 +1,1 @@
+j i sh U k u ch u u n i ry o k o o t o w a pau z e N d a i m i m o N d a

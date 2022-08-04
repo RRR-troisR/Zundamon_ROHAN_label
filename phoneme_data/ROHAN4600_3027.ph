@@ -1,0 +1,1 @@
+t a N p a ts u n o r a i b u d e k a N ky a k u o w a k a s e t a dy u r u b i r u g a pau f a N t o ky a cl ch i b o o r u sh I t e m a s U

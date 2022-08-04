@@ -1,0 +1,1 @@
+m e e y o k I s o N s a r e t a t o n a r e b a pau n a f i i s i i d a cl t e o k o cl t a r o

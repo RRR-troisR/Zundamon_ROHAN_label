@@ -1,0 +1,1 @@
+w i t o m a a w a k o g a r a d a g a pau w a gy u u m o s a b a k e m a s u

@@ -1,0 +1,1 @@
+k u e r u ch a g a pau r o o t o d e o i r u o u ts u s u

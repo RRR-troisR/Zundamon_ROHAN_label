@@ -1,0 +1,1 @@
+v e n e ts i a d e a s o b u n a r a pau y a cl p a r i d o r u s o d u r o d e sh o

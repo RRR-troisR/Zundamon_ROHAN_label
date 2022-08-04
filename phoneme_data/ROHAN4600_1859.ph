@@ -1,0 +1,1 @@
+dy u py u i w a pau t a b i k a s a n a r u b a k a g e t a sh i u ch i n i pau m u h o N n o k a k u g o o k i m e m a s U

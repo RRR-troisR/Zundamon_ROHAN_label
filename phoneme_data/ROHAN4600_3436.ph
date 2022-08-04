@@ -1,0 +1,1 @@
+a r i k I t a r i n a b u y u u d e N w a k e cl k o o pau dy u r a a z o n o s a t e ts u o k I k i t a i m o n o d e s U n a

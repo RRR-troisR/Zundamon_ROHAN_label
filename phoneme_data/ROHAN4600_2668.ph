@@ -1,0 +1,1 @@
+k o d o ny e n i pau s U k i y a z u k u r i n o t a t e m o n o g a a r i m a s U

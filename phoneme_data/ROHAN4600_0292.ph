@@ -1,0 +1,1 @@
+b u g u u w a h I t o g o m i o s u r i n u k e n a g a r a pau w e g u a N e k i o b u r a b u r a a r u k u

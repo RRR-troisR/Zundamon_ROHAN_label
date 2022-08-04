@@ -1,0 +1,1 @@
+d u n a v u ts i n o k I t a d e pau gy u n e sh u g a m a cl t e r u k a r a pau a cl t e m i n a s a r e

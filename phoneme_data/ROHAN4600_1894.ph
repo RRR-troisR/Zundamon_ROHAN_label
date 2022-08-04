@@ -1,0 +1,1 @@
+d i d e e e w a t e k a g e N g a h e t a d e s U k a r a pau j i g i d e m o o t o n a g e n a k U ts u b u sh I ch a i m a s U

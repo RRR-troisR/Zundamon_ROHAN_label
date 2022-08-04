@@ -1,0 +1,1 @@
+gy a k U f u u n i m a k e z u k a ch I t o cl t a t a k a r a b a k o g a pau k a r a cl p o d e b u z e N t o sh I t a

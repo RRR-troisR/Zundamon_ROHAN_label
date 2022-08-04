@@ -1,0 +1,1 @@
+h a u py e ts u w a pau h a m a k i o sh i z a a d e k a cl t o sh i m a sh I t a

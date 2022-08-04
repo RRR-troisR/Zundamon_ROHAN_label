@@ -1,0 +1,1 @@
+s o n o p a f u y u u m u w a pau h e m i s u f i a g a t a y o o k i d e pau r e k I sh i t e k I k a ch i g a a r u

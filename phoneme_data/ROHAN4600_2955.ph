@@ -1,0 +1,1 @@
+sh i g a ts u n i w a pau n a N by a k u m o a cl t a f a cl k U s u n o z a i k o g a k i r e k a k e r u n o d e pau ch I k a j i k a h o j u u sh i n a k e r e b a

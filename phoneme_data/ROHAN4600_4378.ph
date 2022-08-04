@@ -1,0 +1,1 @@
+t o o j i n o j i k i n o f i N r a N d o w a pau ky o k u y a n o t a m e h i g a n o b o r a n a i

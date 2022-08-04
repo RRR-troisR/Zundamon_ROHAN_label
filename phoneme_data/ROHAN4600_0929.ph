@@ -1,0 +1,1 @@
+s a ky u u d e t a b e r u s a k a n a r o cl k e t o b o r i b o r i ky u u r i w a pau sh I f u k u d e a r o o n a

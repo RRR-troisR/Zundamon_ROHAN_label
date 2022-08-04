@@ -1,0 +1,1 @@
+s o n o r a n o b e n o ch o sh a w a v i i ny a d a t o pau b e ts u n o sh u z a i d e w a k a cl t a

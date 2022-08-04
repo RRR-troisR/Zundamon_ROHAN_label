@@ -1,0 +1,1 @@
+hy o cl t o sh I t e pau n a i dy o n o w a s a N n o f u u t o o o pau j u ry o o sh i w a s u r e ch a cl t a k a m o

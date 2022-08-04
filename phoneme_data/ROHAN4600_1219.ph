@@ -1,0 +1,1 @@
+g i r i e r u m e w a pau t o k u b e ts u n a ky o k a o e t e pau j i t a k u d e j o o sh u sh I t e m a s U

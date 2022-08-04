@@ -1,0 +1,1 @@
+t e y a N d e e pau b e N sh o o n a N k a y a cl t e r a r e cl k a pau t o s o f u w a t a N k a o k i cl t a

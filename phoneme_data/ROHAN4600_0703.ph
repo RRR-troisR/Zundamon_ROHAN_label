@@ -1,0 +1,1 @@
+gy o k a k u ry o u g a z e r o d a n a N t e pau k a i by a k u i r a i h a j i m e t e d a y o

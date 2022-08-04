@@ -1,0 +1,1 @@
+a b u d u r u a j i i z u g a k a z e o k o j i r a s e pau s a m a z a m a n a by o o k i m o h e e h a ts u sh I t a

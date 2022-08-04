@@ -1,0 +1,1 @@
+f i g a r o n o a y a m a ch i o j a N n u g a t a d a s U t o w a pau my o o n a k o t o d e s U

@@ -1,0 +1,1 @@
+w o r u p o o r u w a pau k u m o g a s o r a o o o u k o t o n i k i z u k i pau s u g u k I t a k U s u r u d e sh o o

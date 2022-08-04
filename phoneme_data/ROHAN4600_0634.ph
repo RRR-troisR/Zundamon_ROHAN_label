@@ -1,0 +1,1 @@
+s a k a o n o b o cl t e i t a r a pau t o ts u j o k a e r u g a py o N t o t o b i d a sh i pau b i b i r i m a sh I t a

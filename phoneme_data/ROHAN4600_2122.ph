@@ -1,0 +1,1 @@
+ry o k U ch a n a r a pau b i j e b a a n o d e k a e m a s U

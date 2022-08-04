@@ -1,0 +1,1 @@
+k u ky e r u w a s e N s a i n a t e s a b a k i d e pau n i g i r i z u sh i y a m a k i m o n o o z o k u z o k U t o sh i a g e r u

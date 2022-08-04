@@ -1,0 +1,1 @@
+m o sh o v u ts e n o y a k u z a i sh i g a sh o h o o sh I t a pau k a ry u u n o k U s u r i n i w a pau g e k I t e k i n a k I k i m e g a a r i m a sh I t a

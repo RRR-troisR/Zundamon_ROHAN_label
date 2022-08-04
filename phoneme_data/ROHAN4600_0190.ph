@@ -1,0 +1,1 @@
+b i t a ny e n o d a i k i b o k o my u n i t i n i pau k u i r i ch i g a k a ny u u sh I t a

@@ -1,0 +1,1 @@
+o r e g a b e r a b e r a sh a b e r u y o r i pau ky a b e N d i cl sh u n o h o o g a pau ky a r i i z u m o y o r o k o b u d a r o o

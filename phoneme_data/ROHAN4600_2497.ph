@@ -1,0 +1,1 @@
+f a ky u e r u w a pau i y a sh i i m i b u N t o h i g e s u r u

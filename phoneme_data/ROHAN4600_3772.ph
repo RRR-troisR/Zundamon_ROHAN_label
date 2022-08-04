@@ -1,0 +1,1 @@
+s a v i ny a g a w a ry u u i k i n o pau ts e ry e n i a r u pau sh u ry o o ry o o r i t e N g a ts u b u r e t a

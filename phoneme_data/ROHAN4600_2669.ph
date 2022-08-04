@@ -1,0 +1,1 @@
+g u s u t a v u w a pau f e z a a n i a i j a k u g a w a k i m a sh I t a

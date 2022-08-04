@@ -1,0 +1,1 @@
+g u i r i i w a pau k i s o k u o s o ky u u sh I t e t e k i y o o sh I t a

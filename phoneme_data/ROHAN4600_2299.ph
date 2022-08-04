@@ -1,0 +1,1 @@
+d a i k a N y a m a d e pau d i p i ny a a n o n o f u u k e e g a o m i m a sh I t a

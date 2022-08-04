@@ -1,0 +1,1 @@
+y a ts u n a r a pau k u e b e cl k u n i w a h o r i g a n a i n a d o t o pau p e r a p e r a sh a b e cl t e m a s U g a

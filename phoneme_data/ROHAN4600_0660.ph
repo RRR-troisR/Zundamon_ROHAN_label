@@ -1,0 +1,1 @@
+dy u u r a f o a w a pau t o sh i g o r o n o i m o o t o n i k i r a w a r e n u y o o pau k i o ts U k e t e m a s U

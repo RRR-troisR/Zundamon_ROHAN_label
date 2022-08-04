@@ -1,0 +1,1 @@
+k a sh i n i n a z e k a a r u p a k a g a i t a t o pau ch o o sh o n i k a h I ts u sh I t o i t e n e

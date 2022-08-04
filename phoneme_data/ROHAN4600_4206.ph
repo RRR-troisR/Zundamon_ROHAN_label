@@ -1,0 +1,1 @@
+v o r u py a a n o w a pau e b e r e s U t o d e u N k a i n o sh a sh i N o t o r i m a sh I t a

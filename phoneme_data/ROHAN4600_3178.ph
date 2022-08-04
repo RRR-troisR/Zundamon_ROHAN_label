@@ -1,0 +1,1 @@
+hy u p u r a a g a n u k e t a n o d e pau s U k e j u u r u o m a e d a o sh I sh i pau ny u u k a s u u m o g o h I k i k a r a h a cl p I k i n i s u r u

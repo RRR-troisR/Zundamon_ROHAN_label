@@ -1,0 +1,1 @@
+y e v u r e m u n o h a k a w a pau b o s e k i n o s U p e e s u g a n a k u pau b o sh i g a s e cl ch I s a r e t a

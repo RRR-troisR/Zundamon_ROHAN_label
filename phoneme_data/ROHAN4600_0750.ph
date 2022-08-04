@@ -1,0 +1,1 @@
+t i k u v a w a s U k i r u m o sh u u j u k u sh I t e r u sh i pau r e b e r u a cl p U s u cl k a

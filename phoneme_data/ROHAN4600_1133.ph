@@ -1,0 +1,1 @@
+g o n e t a a g e k u n i k e e s a ts u z a t a t o w a pau f i k u r e t o m o g a k e cl p U ch i k a n o o

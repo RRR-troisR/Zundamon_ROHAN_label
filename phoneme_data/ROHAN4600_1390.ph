@@ -1,0 +1,1 @@
+k a j i my e sh u n o z a N z o o g e N sh o o w a z a N sh i N d e pau d o o gy o o sh a o b o o z e N t o s a s e t a

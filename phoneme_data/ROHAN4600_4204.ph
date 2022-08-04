@@ -1,0 +1,1 @@
+v i v a r u d i n o sh i k i w a pau n a g a n e N a i ch o o s a r e t e i r u ky o k u d e s U

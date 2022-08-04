@@ -1,0 +1,1 @@
+a r e cl sh i i d e m i ch i n o sh o cl k i n i d e k u w a sh I t a

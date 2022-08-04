@@ -1,0 +1,1 @@
+b e N t i v o o ry o w a m u ch i d e pau ky u u r e k i o sh i r a n a i

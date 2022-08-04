@@ -1,0 +1,1 @@
+w o o t a a s a a b a a o s e cl ch I s u r u k i gy o o g a f u e pau sh i j o o k i b o g a k a k u d a i sh I t e i r u

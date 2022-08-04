@@ -1,0 +1,1 @@
+z i k i n a n i pau g e k i n o i m i o o sh i e m a sh I t a

@@ -1,0 +1,1 @@
+g u ch i d e h i m i ts u o m o r a sh I t a t a u p e a f e o pau n o g a s u w a k e n a i d a r o

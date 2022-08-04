@@ -1,0 +1,1 @@
+d u r a p o w a pau p e cl t o n o p i p I t o p u p u n i pau p a s e r i o f U k u N d a e s a o y a r u

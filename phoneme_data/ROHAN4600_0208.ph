@@ -1,0 +1,1 @@
+b e r u t o g a m a m o o sh I ch i g i r e t a r a pau gy u r i cl p o s u n i k a e t e m o r a cl t e

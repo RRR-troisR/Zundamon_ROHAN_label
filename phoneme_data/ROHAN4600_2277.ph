@@ -1,0 +1,1 @@
+k u a N hy o N w a pau h a r i o h o o gy o k U t o a g a m e t e m a s U

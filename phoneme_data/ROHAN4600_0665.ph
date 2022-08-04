@@ -1,0 +1,1 @@
+k u e z e r i N k a N sh o o n i m u k a u pau j e cl t o k i n o s o k u d o g a h a y a m a r i m a s U

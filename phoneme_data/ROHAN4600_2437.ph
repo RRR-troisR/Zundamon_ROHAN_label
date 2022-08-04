@@ -1,0 +1,1 @@
+h i r i k i n a w i w i sh i cl t o g a pau k i o g i k o g i k o k i cl t e m a s U

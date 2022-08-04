@@ -1,0 +1,1 @@
+h e r i k u d a cl t e t a h e ts i n i k a sh i z u k u n o w a gy a k U k o o k a d a t o t a sh i n a m e r a r e pau k a o o a k a r a m e m a sh I t a

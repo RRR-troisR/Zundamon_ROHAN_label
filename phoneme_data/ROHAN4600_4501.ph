@@ -1,0 +1,1 @@
+s u k o r u ts o n e r a w a k I k u k a n a n o d e pau m e b a n a t o o b a n a n o k u b e ts u w a n a i

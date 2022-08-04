@@ -1,0 +1,1 @@
+k u a N ch e N n o m a N z a i d e b a k U sh o o sh I t a

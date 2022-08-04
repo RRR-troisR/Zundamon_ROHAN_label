@@ -1,0 +1,1 @@
+y a cl p a r i p o cl sh u w a pau p a r i t o ts o d i r o o o t o z u r e r u k o t o n i sh I t a

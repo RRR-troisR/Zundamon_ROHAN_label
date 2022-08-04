@@ -1,0 +1,1 @@
+b e r u t a ny o cl r i w a pau z e N sh i N o b a n e n o g o t o k u m a g e t a pau k a r e e n a ch u u g a e r i o m i s e t a

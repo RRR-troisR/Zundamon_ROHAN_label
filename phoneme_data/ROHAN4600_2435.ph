@@ -1,0 +1,1 @@
+w o r a w i g a n i g a t e d e m o pau j a k e N n i sh i n a i d e k u d a s a i n e

@@ -1,0 +1,1 @@
+ts i cl p i i w a pau f o o k u b o o r u n o f o o m u o ch e cl k u sh I t e m i g a k i o k a k e pau s e e s e k i o n o b a sh I t a

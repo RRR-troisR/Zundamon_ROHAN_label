@@ -1,0 +1,1 @@
+b u r u hy a a g a n u g a a n o k o t o d e t o r a b u cl t e t a g a pau k o k o m a d e k o j i r e r u t o t e n o h o d o k o sh i y o o g a n a i z e

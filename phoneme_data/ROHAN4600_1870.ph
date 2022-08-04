@@ -1,0 +1,1 @@
+ts a hy a a g i i N w a pau k o d o m o g a u m a r e s o o d a k a r a t o pau ch a r i d e k I t a k U sh i m a sh I t a

@@ -1,0 +1,1 @@
+g u i r a pau b u s u t a b o o k I k i n a g a r a pau f U sh o k U f u m a s U k u o s e cl s e t o ts U k u cl t e i m a s U

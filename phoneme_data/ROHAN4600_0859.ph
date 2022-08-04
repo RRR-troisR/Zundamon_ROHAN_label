@@ -1,0 +1,1 @@
+k a t a g a w a g a p i N ch i n a n o d e pau b u r a t I s u r a b a n i h e r u p u o t a n o m e m a s U k a

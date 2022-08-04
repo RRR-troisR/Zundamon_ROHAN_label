@@ -1,0 +1,1 @@
+h i m e j i j o o n o g u ny a g u ny a t o m a g a r i k u n e cl t a k o m i ch i w a pau s e m e k o m a r e n i k U k u s u r u k U f u u d e a r u

@@ -1,0 +1,1 @@
+d o o v e r u ny u n o a y a m a cl t a j i cl k e N g a m i o m u s u N d a n o w a pau m a s a n i hy o o t a N k a r a k o m a cl t e y a ts u d e s U

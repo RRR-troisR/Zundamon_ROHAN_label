@@ -1,0 +1,1 @@
+p u r a s u m a i n a s u z e r o d e pau t o r i a e z u ny u u t o r a r u d a

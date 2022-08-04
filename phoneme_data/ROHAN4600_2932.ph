@@ -1,0 +1,1 @@
+sh a r o f U ts i w a pau r e e n e N y o r i k o o s u i ry o u g a o o k u pau t o o m e N w a k a s a g a k a k a s e n a i n a

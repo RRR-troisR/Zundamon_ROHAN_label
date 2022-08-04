@@ -1,0 +1,1 @@
+s o k a i s a k i n o f o r u n o o v o d e pau y u u g u r e d o k i n i pau k a r a s u g a k u a a k u a a t o u r u s a k u n a i t e i t a

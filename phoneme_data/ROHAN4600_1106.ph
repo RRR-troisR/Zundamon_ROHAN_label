@@ -1,0 +1,1 @@
+m a d u r o w a g a N k o m o n o d e pau k o r e g a j a s U p a a n o m o z o o h i N d a t o m i t o m e n a i

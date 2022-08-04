@@ -1,0 +1,1 @@
+k o o ky u u n a ch a b a n i f U s a w a sh i i u ts u w a o pau sh u m i d e k a u

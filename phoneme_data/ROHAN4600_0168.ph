@@ -1,0 +1,1 @@
+v a s i i ry o v i ch u w a pau s e p a t a k u r o o n o my o o sh u d a cl t a

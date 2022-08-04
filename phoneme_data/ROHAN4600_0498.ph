@@ -1,0 +1,1 @@
+v u r o j i my e sh u n i pau t a m a g o w a m e s u n o n i w a t o r i sh i k a u m a n a i t o pau o sh i e t e a g e m a sh I t a

@@ -1,0 +1,1 @@
+y o o sh i f o v u n a w a pau d a a pau ny e cl t o pau t o k o e o k a k e pau ts U ts u sh i m u y o o a i z u sh I t a

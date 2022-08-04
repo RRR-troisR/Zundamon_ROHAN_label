@@ -1,0 +1,1 @@
+a n o p e N sh o N d e w a sh I s a ts u j i k e N g a a r i pau m a d a ky a k u a sh i w a m o d o cl t e i m a s e N

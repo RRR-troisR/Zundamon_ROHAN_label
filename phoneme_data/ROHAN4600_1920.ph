@@ -1,0 +1,1 @@
+y e u p a t o o r i y a n o h e u s u r a a w a pau k i N g e N j i cl ch o k u n a h I t o g a r a t o k i i ch o r u y o

@@ -1,0 +1,1 @@
+m a r i ny a a n u n o k e N n a r a pau j i ky o k u n i k a N g a m i t e k e cl t e e s u b e k i

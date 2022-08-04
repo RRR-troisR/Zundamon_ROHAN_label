@@ -1,0 +1,1 @@
+b i r u hy a r u m a a g a s a s a e t a t o sh I t e m o pau h a m e ts u n o s a k i n o b a sh i d a r o o n a

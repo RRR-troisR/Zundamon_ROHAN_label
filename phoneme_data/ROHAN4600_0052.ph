@@ -1,0 +1,1 @@
+f u r a f u r a sh i t e t e m o pau k u e s u b u o k e cl sh I t e a n a d o r u n a

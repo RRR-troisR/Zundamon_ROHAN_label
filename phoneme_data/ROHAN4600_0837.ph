@@ -1,0 +1,1 @@
+z a ts u n a p u r e i d e m o z e N k u r i d e k i r u pau p a d i i j a w a s u g o i d e s U

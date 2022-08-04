@@ -1,0 +1,1 @@
+k o t o r i g a s u k a r a py o k o py o k o t o k a o o d a sh i pau e s a o n e d a r u

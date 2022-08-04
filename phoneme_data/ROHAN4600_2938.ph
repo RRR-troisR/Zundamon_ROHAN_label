@@ -1,0 +1,1 @@
+hy e r o n i m u n o pau t o d o k a n u n e g a i o k o m e t a t a N z a k u w a pau t a n a b a t a n o s a s a n i k a z a r a r e t e i r u

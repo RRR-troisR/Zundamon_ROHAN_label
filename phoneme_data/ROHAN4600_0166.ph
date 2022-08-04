@@ -1,0 +1,1 @@
+g a b a g a b a n a k a w a g u ts u d e h a sh i r e b a pau s o ry a a z u cl k o k e r u n a a

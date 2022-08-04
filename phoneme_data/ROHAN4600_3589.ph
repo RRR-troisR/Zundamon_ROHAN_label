@@ -1,0 +1,1 @@
+k I ts u n e t o t a n u k i n o b a k a sh i a i o s a N g i e g a g i ky o k U k a sh i pau k e cl s a k U t o k a k u z u k e s a r e t a

@@ -1,0 +1,1 @@
+ch i N k u e cl t I s a m a pau g o sh o m o o n a s a cl t e i t a pau w o o k i N g u d a i n a s o o n o k a s e k i d e g o z a i m a s U

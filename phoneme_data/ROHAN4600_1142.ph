@@ -1,0 +1,1 @@
+y a i pau py u p u r a N j u d e w a pau z a cl k o k u m a i g a k a k u r e t a b u u m u cl t e k i i t a z o

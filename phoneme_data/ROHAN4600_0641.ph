@@ -1,0 +1,1 @@
+p o o r u g a k i t e b a a b e ky u u s u r u k a r a pau b o ch i b o ch I ch a cl k a z a i o m o cl t e k i t e n e

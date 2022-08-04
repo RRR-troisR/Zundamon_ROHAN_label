@@ -1,0 +1,1 @@
+g u o s a N w a pau s a t o d e w a sh i r a r e t a k a o d e pau m i n a k a r a a i s a ts U s a r e m a s U

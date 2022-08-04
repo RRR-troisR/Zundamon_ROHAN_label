@@ -1,0 +1,1 @@
+b a a s a N w a pau a i sh e N e N n e t o i cl t e pau ts u r i s e N k o o k a o s a g a sh I t a

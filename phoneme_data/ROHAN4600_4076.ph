@@ -1,0 +1,1 @@
+k o n o e n i w a pau h a cl py a k U h i k i m o n o n e k o g a e g a k a r e t e i m a s U

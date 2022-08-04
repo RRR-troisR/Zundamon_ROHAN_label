@@ -1,0 +1,1 @@
+gy u f a N o k o ch o k o ch o k U s u g u cl t a g a pau b e ts u n i h o k o r u k o t o j a n a i y o

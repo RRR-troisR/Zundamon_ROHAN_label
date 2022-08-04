@@ -1,0 +1,1 @@
+v a sh i ry e v i cl ch i w a s U t a m i n a m o a r i pau f o w a a d o y a m i cl d o f i r u d a a m o k o n a s e r u z e

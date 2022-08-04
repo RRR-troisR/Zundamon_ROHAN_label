@@ -1,0 +1,1 @@
+k e cl ky o k u j a N k e N d e k i m e r u g a pau k o r e w a u y o ky o k U s e ts u o h e t e k i m a cl t a pau f e a n a sh u d a N d e s U

@@ -1,0 +1,1 @@
+k o n o k u n i d e w a pau s e cl sh o o o r e g a ts o o n i t o t u w i cl t i i g a n i n a cl t e m a s U g a pau s o n o k o t o w a g o k U h i d e s U

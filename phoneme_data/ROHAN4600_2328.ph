@@ -1,0 +1,1 @@
+gy u f e k a r a p i a s u o b o cl sh u u sh I t a

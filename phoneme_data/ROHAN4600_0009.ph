@@ -1,0 +1,1 @@
+k o sh e v o i n o w i cl sh u r i s U t o w a pau n e b a n e b a sh o k u z a i b a k a r i d a

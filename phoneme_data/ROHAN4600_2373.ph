@@ -1,0 +1,1 @@
+a ry a pau k a w a k a sh I t a k U ts u sh I t a g a m a d a sh i m e cl t e r u n a

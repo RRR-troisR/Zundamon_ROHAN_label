@@ -1,0 +1,1 @@
+p a t I sh i e n i n a r u n a r a pau p e t i n a i f u n o g i j u ts u m o d o N y o k u n i e t o k U sh i n a ky a

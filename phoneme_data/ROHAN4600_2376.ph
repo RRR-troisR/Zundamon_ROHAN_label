@@ -1,0 +1,1 @@
+ts i i g u r a a g a pau m a ch I k a d o d e t i cl sh u o k u b a r u

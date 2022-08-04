@@ -1,0 +1,1 @@
+b o s u n i w a gy o i t o i i n a g a r a pau b u u d i cl k a o n i g a sh I t a n o d e s U n e

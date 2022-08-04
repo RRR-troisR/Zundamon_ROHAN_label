@@ -1,0 +1,1 @@
+g u i n a m u n o p o j i sh o N w a k u o o t a a b a cl k u d e pau m a r e n i d i f e N sh i b u e N d o m o y a r u

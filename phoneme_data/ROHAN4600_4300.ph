@@ -1,0 +1,1 @@
+ch u u r i cl h i pau s o n o e k I t a i o k a k i m a z e r u t o pau n i g o r u h a z u d e s U

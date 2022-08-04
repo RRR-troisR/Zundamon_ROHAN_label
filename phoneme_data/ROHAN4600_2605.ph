@@ -1,0 +1,1 @@
+m a a gy u r i s u w a pau ry u u s a o u k a i sh i m a s U

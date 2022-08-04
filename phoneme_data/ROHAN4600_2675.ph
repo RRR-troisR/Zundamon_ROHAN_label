@@ -1,0 +1,1 @@
+r o z u w e r u t o b u ts u b u ts U k o o k a N sh i m a sh I t a

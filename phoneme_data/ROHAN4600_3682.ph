@@ -1,0 +1,1 @@
+k a r a d a o n o b i ch i j i m i s a s e pau b u y o o ky o k u e s U p a ny o r e e t a o h I k i m a s U

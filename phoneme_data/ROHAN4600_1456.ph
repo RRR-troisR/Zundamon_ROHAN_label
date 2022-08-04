@@ -1,0 +1,1 @@
+v o j i ny a k u n o n i w a d e t a k i b i g a k e m u cl t e m a s U g a pau k a z a m u k i g a k i n i n a r i m a s U

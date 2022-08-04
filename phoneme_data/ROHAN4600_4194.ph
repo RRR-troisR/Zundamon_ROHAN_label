@@ -1,0 +1,1 @@
+g a N k o n a ch o o i ch i r o o g a pau y a cl t o ry o o k a i sh I t e k u r e h o cl t o sh I t a

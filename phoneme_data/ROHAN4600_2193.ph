@@ -1,0 +1,1 @@
+ky u u w i n o sh o cl k a N g a k o k o r o y o i

@@ -1,0 +1,1 @@
+w o o t o r i i y o pau h o sh i n o m o t o e k i t a r e

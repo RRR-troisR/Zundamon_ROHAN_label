@@ -1,0 +1,1 @@
+ch i g u u w a pau t a e r u k o t o n a k u n e N b u ts u o t o n a e r u y o o pau sh i j i s a r e m a sh I t a

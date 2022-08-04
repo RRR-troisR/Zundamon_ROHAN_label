@@ -1,0 +1,1 @@
+f a t i m a w a pau t o k o y a d e m i d i a m u h e a o b o b u n i t o t o n o e pau k e s a k i o p o p i i r e cl d o n i s o m e t a

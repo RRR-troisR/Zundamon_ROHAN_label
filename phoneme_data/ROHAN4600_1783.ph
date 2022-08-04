@@ -1,0 +1,1 @@
+r o k U sh o o o pau s a b i d a t o sh i r a n u sh e N k e b i ch i g a pau n a n i g e n a k u n a m e t a cl t e

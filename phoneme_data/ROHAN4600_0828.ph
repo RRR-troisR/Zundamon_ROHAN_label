@@ -1,0 +1,1 @@
+b o k u n o g o i d e w a pau y e d o v a b u n e j i k e N n o d i b e e t o w a m u r i d e s U

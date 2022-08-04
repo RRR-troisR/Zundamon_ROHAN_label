@@ -1,0 +1,1 @@
+f e t o o g a pau g u r a s u n i o o b e r u ny u o s o s o g u

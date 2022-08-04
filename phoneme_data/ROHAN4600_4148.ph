@@ -1,0 +1,1 @@
+m a a pau b a ry u u p u r a i s U t o i u k o t o b a n i w a pau y a h a r i k o k o r o g a y u r u g u

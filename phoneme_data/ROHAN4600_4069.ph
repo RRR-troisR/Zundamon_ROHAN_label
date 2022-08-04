@@ -1,0 +1,1 @@
+w a sh o k u z u k i n a g u e a s a N g a pau k a k i g o o r i o t a b e n a g a r a s u z u N d e i m a s U

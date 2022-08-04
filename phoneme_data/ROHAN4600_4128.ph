@@ -1,0 +1,1 @@
+m a w a r i n i ch a k a s a r e t e m o k i n i sh i n a i ts u y o s a w a pau m a n e d e k i n a i

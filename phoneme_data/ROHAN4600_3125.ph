@@ -1,0 +1,1 @@
+k o n o r o cl k o i r i t a k o y a k i pau s o t o w a k a r i cl t o n a k a m i w a t o r o cl t o j u u sh i i d e pau s U k i g a n a i

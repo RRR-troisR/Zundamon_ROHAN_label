@@ -1,0 +1,1 @@
+ts i g a a n u t o k I k u t o pau m i n a w a r a b e r u t o r i p a cl t i n o d o cl ch i g a u k a b u k a n a

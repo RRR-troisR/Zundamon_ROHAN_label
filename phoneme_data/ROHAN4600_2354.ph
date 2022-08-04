@@ -1,0 +1,1 @@
+s a k e o h i y a d e o o d a a s u r u n o w a dy u w o N d a n e

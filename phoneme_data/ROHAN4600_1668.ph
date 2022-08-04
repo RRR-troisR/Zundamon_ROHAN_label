@@ -1,0 +1,1 @@
+p u r i m i t i i v o w a pau k i my o o n a s e e sh I ts u o y u u s u r u k o o b o o h a cl k e N sh i m a sh I t a

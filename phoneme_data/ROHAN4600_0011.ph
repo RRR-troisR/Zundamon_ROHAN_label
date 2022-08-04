@@ -1,0 +1,1 @@
+y o o g a k i N ch o pau a m a cl ch o r o i p o r i sh i i k a k a g e t e ch a pau ts u r a i d a r o o

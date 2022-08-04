@@ -1,0 +1,1 @@
+s o g u o N w a pau z a i o k e N j i ts u n i t a k u w a e t e m a s U

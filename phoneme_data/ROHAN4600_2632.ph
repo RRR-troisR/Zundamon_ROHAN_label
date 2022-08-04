@@ -1,0 +1,1 @@
+my o o ch o o pau b i ch u n i a n i y u k i g a m a i m a sh I t a

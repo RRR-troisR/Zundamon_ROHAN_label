@@ -1,0 +1,1 @@
+y o u g u u n i w a pau k a g e g u ch i m o d o k o f u k U k a z e d a

@@ -1,0 +1,1 @@
+ch o cl t o g o t a g o t a sh I t e pau b o k o o d a a n o n e i r o ch e cl k u o w a s u r e ch i m a cl t a

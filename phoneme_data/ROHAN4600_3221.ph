@@ -1,0 +1,1 @@
+p i N k u n o j i sh a k u o n o m i k o N d a sh e f U ch e N k o w a pau ky a cl t o w o o k u m o k o w a sh I t e sh i m a i m a sh I t a

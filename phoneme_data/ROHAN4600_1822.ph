@@ -1,0 +1,1 @@
+s a N s U k u r i cl t o g o k e N d e h a t a r a k i pau ty o y a ty a pau dy a y a dy o n o h a ts u o N o sh i r i m a sh I t a

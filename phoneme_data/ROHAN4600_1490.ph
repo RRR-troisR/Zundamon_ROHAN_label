@@ -1,0 +1,1 @@
+d i i f e N b a cl h a w a pau b e n e d i k U t o s a m a n o p a a t i n o m a cl s e k i n i pau n a o ts u r a n e m a s U

@@ -1,0 +1,1 @@
+k a z e k a o r u sh o k a n i pau ky a N p U f u a i y a a o k I k a k U s u r u n o m o o m o sh i r o i g a pau ky a k u g a a ts u m a r u k a w a g i m o N d a

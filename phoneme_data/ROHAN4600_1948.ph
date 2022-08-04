@@ -1,0 +1,1 @@
+u ch i n o m i s e pau n a g a n e N e z o t a n u k i n o m a a k u g a m e j i r u sh i d e pau e e gy o o sh I t e t a s a

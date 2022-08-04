@@ -1,0 +1,1 @@
+k a d i y e v i ch i w a pau a k e n o my o o j o o n i w a y o i n o my o o j o o t o k o t o n a r u o m o m u k i g a a r u t o pau sh a sh i N o m i s e t a

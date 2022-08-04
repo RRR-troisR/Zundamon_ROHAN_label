@@ -1,0 +1,1 @@
+t e e sh u w a pau dy e j o o b u t o k u r i k a e sh i m a s U g a pau i cl k a h o o k a i g a a t a m a o y o g i r i m a s U

@@ -1,0 +1,1 @@
+gy a k U s e ts u t e k i n i pau gy a z a k o o r u n o d o ry o k u d e pau gy a cl p U s a e u m e r e b a k a t e m a s U n e

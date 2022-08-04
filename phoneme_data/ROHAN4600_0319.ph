@@ -1,0 +1,1 @@
+y e v u t i cl ch i w a h i t a i o k e g a sh i pau by o o i N d e n u cl t e m o r a cl t a

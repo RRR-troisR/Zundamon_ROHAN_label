@@ -1,0 +1,1 @@
+y a s U t o sh e N by e d e pau r a p I s u r a z u r i o d a cl sh U s a r e t a

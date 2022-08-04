@@ -1,0 +1,1 @@
+gy a v a t o gy e n a a w a k e N e N n o n a k a d e pau ch u u s a i d e k I s o o m o a r i m a s e N

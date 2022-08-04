@@ -1,0 +1,1 @@
+p e r i ny o N n a r a pau k a k u g e ts u d e d e m o r e N s a i d e k i r u ch a N s u o pau m u z a m u z a n o g a s a n a i d e sh o

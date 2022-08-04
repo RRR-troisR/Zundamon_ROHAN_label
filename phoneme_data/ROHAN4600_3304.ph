@@ -1,0 +1,1 @@
+s U ch u u r e g a pau v i p a a v a n i n e ts u k a s e t a i m a w a sh i i f u u sh u u g a pau my a k u my a k U t o u k e ts u g a r e r u

@@ -1,0 +1,1 @@
+g u r o o b a r u s u t a N d a a d o n i t e r a s U t o pau g o d i i ny o n o k o o i w a pau s o sh o o r i s U k u g a t a k a s u g i r u

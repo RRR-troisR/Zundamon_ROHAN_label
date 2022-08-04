@@ -1,0 +1,1 @@
+d o k u r i ts u d o cl p o o pau b i my o o n i m a g e t e i k i t e m a s U

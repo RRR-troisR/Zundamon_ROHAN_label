@@ -1,0 +1,1 @@
+f u u d o k o o t o d e pau ny a sh i N b e w a k a ts u d o N o pau n e s u by o o w a m a g u r o d o N o o o d a a sh i m a sh I t a

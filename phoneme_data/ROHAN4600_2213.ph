@@ -1,0 +1,1 @@
+g a b u r i e r a n o s e g a ch i j i m i m a sh I t a n a a

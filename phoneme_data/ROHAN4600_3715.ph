@@ -1,0 +1,1 @@
+n a z e d a k a ky o o n o p e r i i n u t a ch i w a pau h i j o o n i i r e gy u r a a n a ch o o k a d a

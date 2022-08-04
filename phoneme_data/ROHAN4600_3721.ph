@@ -1,0 +1,1 @@
+f U t a e m a b u t a n o k a r e g a pau k a N ts o o n e pau f i r e N ts e o y u m e m i t e o u t a u

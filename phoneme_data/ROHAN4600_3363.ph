@@ -1,0 +1,1 @@
+a k u a r i w a pau s u b e t e n o g e N ky o o d e a r u sh i ny o r e cl r i d a t o o o m e z a sh i pau d u k U ch u e t a b i d a cl t a

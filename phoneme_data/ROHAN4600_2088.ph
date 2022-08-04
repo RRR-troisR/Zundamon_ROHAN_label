@@ -1,0 +1,1 @@
+hy a k u m e e n o j i d o o o m a j i e t a d i b e e t o w a pau m u ch a d e s U

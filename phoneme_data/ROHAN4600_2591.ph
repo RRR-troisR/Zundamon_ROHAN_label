@@ -1,0 +1,1 @@
+k o n o h i cl s e k i w a pau gy a r i s u n i m a ch i g a i n a i

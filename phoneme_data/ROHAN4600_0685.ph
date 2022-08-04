@@ -1,0 +1,1 @@
+m i n a m i k a r a ny a a t o n a k U k o e g a k I k o e pau gy o cl t o sh i m a sh I t a

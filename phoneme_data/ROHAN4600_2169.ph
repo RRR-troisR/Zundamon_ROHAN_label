@@ -1,0 +1,1 @@
+b u r o N z i i n o n i s a t o s a r e pau sh e r a i e f u g a j i sh u sh I t a

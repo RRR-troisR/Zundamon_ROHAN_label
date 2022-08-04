@@ -1,0 +1,1 @@
+a k U sh u d a cl t a g a k i m o ch i o o s a e pau t e sh i i k e w a sh i r o b o sh i o a g e t a

@@ -1,0 +1,1 @@
+k a r i y a a e f u w a pau by o o k i n i n a cl t e m o k a N sh a n o k o k o r o o w a s u r e m a s e N

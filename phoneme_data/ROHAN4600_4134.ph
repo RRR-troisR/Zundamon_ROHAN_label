@@ -1,0 +1,1 @@
+ts u m a n o t a N j o o b i n i pau f e N d i i n o b a cl g u o o k u r u ts u m o r i d a

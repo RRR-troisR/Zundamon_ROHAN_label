@@ -1,0 +1,1 @@
+ch a b u d a i g a e sh i n i g e k i d o sh I t a f u y u u g a a g a pau k u r a b u o n u k e t e m o sh I k a t a n a i

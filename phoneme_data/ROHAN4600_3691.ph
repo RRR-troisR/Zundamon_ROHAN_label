@@ -1,0 +1,1 @@
+o t o k o g a k u o o t a a p a N ts U s u g a t a d e pau ch e N s o o k a t a t e n i s a w a g i m a s U

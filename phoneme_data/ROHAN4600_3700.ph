@@ -1,0 +1,1 @@
+k u r e e N g e e m u n i m e cl p o o y o w a k u pau y a k e cl p a ch i d e f i gy u a n i t o r a i sh i m a s U

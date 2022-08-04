@@ -1,0 +1,1 @@
+ny e m u ts o b a a n o i k i n a h a k a r a i d e pau r e p i d u s u w a sh o n i ch I k a r a g u r u u p u n i n a j i m e m a sh I t a

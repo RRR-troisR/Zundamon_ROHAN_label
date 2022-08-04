@@ -1,0 +1,1 @@
+k u o o k o w a pau p o N ch e k o o r u v o n o s o o g i n i pau s u g u m u k a i m a s U k a

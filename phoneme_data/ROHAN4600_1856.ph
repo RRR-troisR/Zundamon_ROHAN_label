@@ -1,0 +1,1 @@
+j e d i d i a w a hy o o hy o o t o sh I t e m a s U g a pau f u j u t o k a g e g u ch i o t a t a k a r e t e m a s U

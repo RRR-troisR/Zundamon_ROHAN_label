@@ -1,0 +1,1 @@
+k o n o b i r u n i w a e r e b e e t a a g a n a i n o d e pau j u u n i N w a m i n a k e N ky a k u d e pau n a g a i k I s u r u r a sh i i z o

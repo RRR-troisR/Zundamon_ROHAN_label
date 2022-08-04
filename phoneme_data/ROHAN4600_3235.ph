@@ -1,0 +1,1 @@
+dy u b a r i e n i t a i k o o s u r u n a r a pau n e d o by e d o n i k I h o N w a z a k a r a k I t a e t e m o r a i m a sh o o

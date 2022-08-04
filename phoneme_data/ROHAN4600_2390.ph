@@ -1,0 +1,1 @@
+p o r u t e y u g a r u n o u t a n i pau k o t o d a m a g a y a d o r u

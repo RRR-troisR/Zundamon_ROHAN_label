@@ -1,0 +1,1 @@
+u r u t o k i m e t a n o d a k a r a pau k u k u i w a z u n i ch a cl ch a t o y a cl ch i m a o o

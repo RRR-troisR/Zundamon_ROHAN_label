@@ -1,0 +1,1 @@
+k u u i r u n o sh i N r a ts u n a h i hy o o w a pau i b u n o k o k o r o o o r i m a sh I t a

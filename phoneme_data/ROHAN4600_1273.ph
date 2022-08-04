@@ -1,0 +1,1 @@
+t o o z e N d e s U g a pau k u o b a d i s u n i pau k a w a r a n o y a n e w a d e t e k i m a s e N y o

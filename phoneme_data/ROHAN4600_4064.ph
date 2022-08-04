@@ -1,0 +1,1 @@
+r o s e N h e N k o o s u r u k o t o n a k u pau b u j i n i t o o ky o o n i t o o ch a k U sh i m a sh I t a

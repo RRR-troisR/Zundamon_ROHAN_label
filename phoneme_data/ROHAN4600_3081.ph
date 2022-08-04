@@ -1,0 +1,1 @@
+k o n o sh I s a k u w a f a ny o n i g a h a n e ts U k e t a g a pau ts U ts u g a n a k U s e k o o s a r e pau y a r e y a r e t o i cl t a o m o m o ch i d e s U

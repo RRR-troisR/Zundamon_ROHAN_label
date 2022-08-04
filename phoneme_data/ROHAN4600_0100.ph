@@ -1,0 +1,1 @@
+t a r u k u i i n i w a pau j u k u d e sh u b a r u ts U sh i r u t o h a N k e e o m a n a b u

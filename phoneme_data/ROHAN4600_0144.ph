@@ -1,0 +1,1 @@
+r o d i g e sh i i n o sh a j i ts u g a o pau g o o j a s u n a g a k u b u ch i n i i r e t e k a z a r u

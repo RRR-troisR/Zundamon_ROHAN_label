@@ -1,0 +1,1 @@
+w o o r i i pau t e b u k u r o o sh i n a i t o pau sh i m o y a k e sh I t e a t o g a ts u r a i y o

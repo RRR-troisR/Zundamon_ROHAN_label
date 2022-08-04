@@ -1,0 +1,1 @@
+y a s u m i o h a s a m u t o pau f i r o m e n a m o pau u g o k i g a n i b u r i m a s U n e

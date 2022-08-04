@@ -1,0 +1,1 @@
+k u v a a k e N b u ry u cl k u d e w a pau d o k U sh o n i sh I t a sh i m u t a m e pau ky o g a k u o t o o j i t o sh o sh I ts u g a s e e b i s a r e t a

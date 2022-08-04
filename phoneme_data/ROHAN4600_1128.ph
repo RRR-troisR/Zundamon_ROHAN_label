@@ -1,0 +1,1 @@
+k u e N t i N n o s o k o j i k a r a d e pau p a a t i n o k e cl s o k u g a ts u y o m e r a r e r u

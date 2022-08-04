@@ -1,0 +1,1 @@
+a N d o N k u r a g e y a b a a g e sh i i o m i t e i r u t o pau k o k o r o g a i y a s a r e m a s U

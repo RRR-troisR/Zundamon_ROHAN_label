@@ -1,0 +1,1 @@
+k u a r u t e cl t o n o e N s o o k a i o h I k a e t e pau k a r e t o k e N k a sh i m a sh I t a

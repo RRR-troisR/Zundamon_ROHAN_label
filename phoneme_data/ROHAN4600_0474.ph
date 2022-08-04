@@ -1,0 +1,1 @@
+w e r u t o my u u r a a n o t e g a r a w a pau h o b o g u u z e N n o s a N b u ts U t o k i i t e o r i m a s U

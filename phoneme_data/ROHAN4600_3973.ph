@@ -1,0 +1,1 @@
+k i w a d o i h a n a sh i n i n a cl t e k i t a n o d e pau y u u ry a w a s o cl t o s e k i o t a cl t a

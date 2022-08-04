@@ -1,0 +1,1 @@
+h a i ky u u s u r u n a r a pau ky u b e t o n i i k i m a sh o

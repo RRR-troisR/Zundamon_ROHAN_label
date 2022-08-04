@@ -1,0 +1,1 @@
+g u e y e w a pau k a N sh i n o sh i h a ch i h e e o sh i r a b e pau m u cl ts u w a w a k a cl t a g a n o k o r i f u t a ts u g a w a k a r a n a k a cl t a

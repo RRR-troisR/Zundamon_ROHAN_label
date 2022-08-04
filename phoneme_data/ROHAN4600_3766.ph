@@ -1,0 +1,1 @@
+y u b i o n a r a sh i pau s a m u s u i N t u pau d u r i N k U t o s a k e b u pau d a r e k a s a N n o s e i d a

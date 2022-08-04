@@ -1,0 +1,1 @@
+gy e u g u t o s a N pau k u r e j i cl t o k a a d o g a sh i y o o f u n o o d a k e d o pau m a s a k a j i k i o o b i t a b a sh o n i o i t a

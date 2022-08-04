@@ -1,0 +1,1 @@
+f u y u n o b o o n a s u o pau ts a i s u r e N z u n o k o o ny u u h i n i a t e m a sh I t a

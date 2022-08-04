@@ -1,0 +1,1 @@
+gy o o m u s a N pau m a z u sh i N k I s a k U s e e o k u r i cl k U sh i pau t e k I t o o n a f a i r u m e e o t a i p U sh i y o o

@@ -1,0 +1,1 @@
+sh o o ch I k u b a i n o t o cl p u w a n a n i k a pau b o r a a ny o w a w a k a r a n a k a cl t a

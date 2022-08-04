@@ -1,0 +1,1 @@
+t a r u k u e k u n o p i k U ch a a o d a sh I t e k u d a s a i

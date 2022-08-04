@@ -1,0 +1,1 @@
+f o r u m a N t o t o w a s e e d o o n o ky o o m e e n i m o t o z u k U t o pau p e ts e r i n o g a cl k a i d e o s o w a cl t a

@@ -1,0 +1,1 @@
+p a m e r a g a d o t a ky a N sh i pau h i g a k u r e m a sh I t a

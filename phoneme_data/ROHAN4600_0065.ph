@@ -1,0 +1,1 @@
+dy u k u ry u e w a pau g a cl k i n a r a ty u u b a t o o o b o e g a o k i n i i r i d a t o k a

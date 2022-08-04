@@ -1,0 +1,1 @@
+k e ch i e g u u w a pau f u r u i k i g u o n a y a n i o sh I k o m u

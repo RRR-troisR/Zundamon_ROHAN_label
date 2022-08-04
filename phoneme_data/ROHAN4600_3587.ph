@@ -1,0 +1,1 @@
+a r u j e e ny o o k o N s e p U t o n i h e N ky o k u sh I t a o r u g o o r u ky o k u g a pau o o d i e N s u n i k a cl s a i s a r e t a

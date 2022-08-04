@@ -1,0 +1,1 @@
+n a a pau b o k u w a o y a f u k o o d e e s u n a N t e pau j i m a N ny a n a r a N z e

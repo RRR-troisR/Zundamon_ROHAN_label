@@ -1,0 +1,1 @@
+w a t a sh i w a t a N s u i gy o o k a cl t e o r i pau k o r e g a s u g o k u i y a s a r e r u N d e s U y o

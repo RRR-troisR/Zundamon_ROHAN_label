@@ -1,0 +1,1 @@
+p o ts u ny a k o f u w a pau e N sh u u r i ts u o hy a cl k e t a o b o e t e m a s U

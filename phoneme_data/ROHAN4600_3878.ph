@@ -1,0 +1,1 @@
+sh i s U t e m u n o j o o ch o o k a n o t a m e n i pau h e N m i k u N w a g a N b a cl t e i m a s U

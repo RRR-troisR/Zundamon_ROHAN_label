@@ -1,0 +1,1 @@
+v o p e N k a n o i n o ch i w a pau v u r a a N g e r i sh i d a i d a

@@ -1,0 +1,1 @@
+s a py e N ts u a w a pau k o n o ch i i k i n o b o o e k i o sh I k i r u sh o o n i N d a

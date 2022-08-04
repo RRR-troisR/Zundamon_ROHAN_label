@@ -1,0 +1,1 @@
+b o o b e s a N pau k o n o t o b i r a w a o s u n o d e s U

@@ -1,0 +1,1 @@
+u s o h a cl py a k u t o i u d o r a m a n o sh u d a i k a o pau m i n a d e s e e sh o o sh I t a

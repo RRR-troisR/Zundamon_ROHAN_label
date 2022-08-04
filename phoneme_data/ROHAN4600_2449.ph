@@ -1,0 +1,1 @@
+w i r u m a ch a N pau s u e n a g a k u o sh i a w a s e n i

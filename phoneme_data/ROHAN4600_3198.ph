@@ -1,0 +1,1 @@
+m o o sh i w a k e n a i g a pau ry u cl ts e N k a r a j e N ts o o n e e n o g e N m i ts u n a h o o g a k u w a pau m a n i a cl k U s u g i t e w a k a r a n u

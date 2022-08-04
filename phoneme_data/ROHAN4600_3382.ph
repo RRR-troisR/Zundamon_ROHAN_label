@@ -1,0 +1,1 @@
+k o k o w a pau v o r u p a a g o d e w a s o o t a i t e k i n i h I k u m a cl t a t o ch i d a g a pau b a i ky a k u e k i w a k I t a i d e k i r u

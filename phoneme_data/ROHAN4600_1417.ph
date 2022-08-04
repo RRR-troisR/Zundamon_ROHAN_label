@@ -1,0 +1,1 @@
+z a i ry u u ky o k a g a o r i n a i n a r a pau r i y u u o m a i ky o s u b e k i d e s U n a

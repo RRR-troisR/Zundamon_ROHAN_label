@@ -1,0 +1,1 @@
+sh o k u b a d e m i d a r a n a t o p i cl k u w a s e k U h a r a d a z e pau s e d e e ny o

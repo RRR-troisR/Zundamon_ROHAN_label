@@ -1,0 +1,1 @@
+k i r u k e g o o r u w a pau b o k o o n i b u a ts u i sh o s e k i o k i s o o sh I t a

@@ -1,0 +1,1 @@
+b e t a n a n e t a d a cl t a g a pau s o n o h o o g a sh I k e N n i w a u k a r u k i g a s u r u

@@ -1,0 +1,1 @@
+t u d u r a ch e d o n o pau k a r e o sh i r i o n o r e o sh i r e b a pau hy a k U s e N a y a u k a r a z u d e g o z a i m a s U z o

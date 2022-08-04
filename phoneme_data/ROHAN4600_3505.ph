@@ -1,0 +1,1 @@
+k i ny o o n e s u n o p o i z u N a t a cl k u w a pau ch o o e ts u sh I t a s o o ry o g a k i y o m e r u i g a i pau g e d o k u d e k i n a i

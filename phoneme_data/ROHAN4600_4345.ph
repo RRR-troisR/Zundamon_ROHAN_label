@@ -1,0 +1,1 @@
+sh a N d e r i a g a o ch i r u k a m o sh i r e n a i k a r a pau t e N n a i d e a b a r e n a i d e k u r e

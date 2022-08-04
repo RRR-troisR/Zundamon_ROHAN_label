@@ -1,0 +1,1 @@
+sh a n a i d e m o d o sh I t e m o i i y o o n i pau e ch I k e cl t o b u k u r o o sh i n o b a s e t e o k u

@@ -1,0 +1,1 @@
+v i v a r u d i n o sh i k i o pau s o d e g a n a g a i k u r o sh a ts u o k i t e h I k i m a s U

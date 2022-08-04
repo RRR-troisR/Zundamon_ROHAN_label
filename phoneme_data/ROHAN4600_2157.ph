@@ -1,0 +1,1 @@
+sh e j u g a b a cl f a r o o n o m u r e o a y a ts u r u

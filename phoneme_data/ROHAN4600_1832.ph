@@ -1,0 +1,1 @@
+b u cl s o o n a y o cl p a r a i g a k a cl p o s u r u z o o N d a k a r a pau d o p a r u dy u u m o k i o ts U k e t e

@@ -1,0 +1,1 @@
+r u ky e o h o cl t o k u t o w a pau y e sh u k e m o h a k u j o o d a n a

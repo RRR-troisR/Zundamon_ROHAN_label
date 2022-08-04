@@ -1,0 +1,1 @@
+ch u r u g o o w a pau g a i sh u u i cl sh o k u n o ts u y o s a d e sh I t a

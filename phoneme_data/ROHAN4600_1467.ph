@@ -1,0 +1,1 @@
+k o t u u ny o n o n i k u b a n a r e w a pau ch i y u s u r u k a r a h o cl t o k i m a sh o

@@ -1,0 +1,1 @@
+g e o r u gy e v i ch i w a pau b a s U t a o r u o w a s u r e t a n o d e pau n u r e t a t e n u g u i d e f U k u h a m e n i n a r i m a sh I t a

@@ -1,0 +1,1 @@
+a s u w a b i k o f o r u t e d e ts u r u g a pau p o r u py u r i o s u w a k u r u k a n a

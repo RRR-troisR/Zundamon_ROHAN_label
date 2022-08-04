@@ -1,0 +1,1 @@
+a ry a pau b o s u n i a h e r u ts e g o b i n a n o sh u t o w a pau s a r a e b o d e sh I t a k a

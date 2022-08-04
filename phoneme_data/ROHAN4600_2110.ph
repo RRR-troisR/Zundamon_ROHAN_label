@@ -1,0 +1,1 @@
+ky a d o w o r a d a a n o j i ts u ry o k u w a pau p u r o n i h I k e N s u r u

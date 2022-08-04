@@ -1,0 +1,1 @@
+ry o o g a pau sh i cl p I ts u ch u u n o g i ky o k u n o k o o g a i o h a n a sh I t e k u r e m a sh I t a

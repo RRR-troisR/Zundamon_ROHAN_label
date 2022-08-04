@@ -1,0 +1,1 @@
+o k a b e s a N w a pau s e N d a i sh I t a i h a k u k u n i m a N sh o N o t a t e m a sh I t a

@@ -1,0 +1,1 @@
+j u u g o y a o pau g i d e e o N t o s u g o sh i m a sh I t a

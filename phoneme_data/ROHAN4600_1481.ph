@@ -1,0 +1,1 @@
+j i sh o o h i i t e m o pau dy a y a dy o n o ts u k U k o t o b a g a n a k u pau h a cl ky o o sh I k a k e t e m a s U

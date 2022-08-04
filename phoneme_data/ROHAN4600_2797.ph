@@ -1,0 +1,1 @@
+s e r e z u ny o o g a pau k i N d a N n o k a j i ts u n i t e o d a sh I t a

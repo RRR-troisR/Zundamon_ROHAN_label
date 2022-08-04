@@ -1,0 +1,1 @@
+k u i cl g u g a m o y o o sh I t a i b e N t o w a pau g e r i r a g o o u d e ch u u sh i n i n a cl t a

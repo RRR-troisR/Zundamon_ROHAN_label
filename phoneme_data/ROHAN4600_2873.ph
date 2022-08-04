@@ -1,0 +1,1 @@
+k u r o m i e j i i j u n o m a ch i n o h i n i s a s o i d a s a r e pau a t u b a g a y o n a y o n a s a m a y o cl t e i m a s U

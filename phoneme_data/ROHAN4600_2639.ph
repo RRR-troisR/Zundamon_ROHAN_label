@@ -1,0 +1,1 @@
+g u t o v u s U k i n o a sh i n i pau r o o p u g a k a r a m a r i m a s U

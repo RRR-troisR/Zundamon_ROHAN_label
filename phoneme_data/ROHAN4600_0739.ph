@@ -1,0 +1,1 @@
+y a ts u w a w o g a w o g a d e k o z u r u k U t a ch i m a w a r i pau sh U k u t e k i o s o g e k i sh I t a o sh I t a n o d a

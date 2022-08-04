@@ -1,0 +1,1 @@
+hy a k u n e N m a e n i h a s u g a h a N m o sh i pau i m a m o my a k u my a k U t o s e e ch o o o ts u z u k e r u

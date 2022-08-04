@@ -1,0 +1,1 @@
+s a N g i e y e sh e w a pau sh o o g a i g e N e k i o ts u r a n u i t a

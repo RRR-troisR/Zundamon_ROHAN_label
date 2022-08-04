@@ -1,0 +1,1 @@
+my o o r i i pau f u g a k u n o k e e s a N ry o k u o pau sh i r a b e t e m o r a e m a s e N k a

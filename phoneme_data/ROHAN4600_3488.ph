@@ -1,0 +1,1 @@
+h a g a n e n o ts u r u g i d e k i r a r e t a r a pau m e cl ch a i t a i sh I ch i m o py u u cl t e d e r u N d a r o o n a a

@@ -1,0 +1,1 @@
+h a t a ch i n i n a cl t a g e e z e n o y u m e w a pau sh i n u m a d e n i g u i n e b i a e i k U k o t o d e a r u

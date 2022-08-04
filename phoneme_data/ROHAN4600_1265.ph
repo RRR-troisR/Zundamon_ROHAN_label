@@ -1,0 +1,1 @@
+y a k o p e cl t i s a N pau o t e m a d e s U g a pau m i cl k o o sh a n o ch e cl k u o t a n o m i m a s U

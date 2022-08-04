@@ -1,0 +1,1 @@
+ny o o b o o g a ky o o k a i d e ts u m u g u k o t o b a n i pau ky o o j u w a ky o o ts U k a r e m a sh I t a

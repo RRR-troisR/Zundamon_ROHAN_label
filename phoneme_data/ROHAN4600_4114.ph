@@ -1,0 +1,1 @@
+ky o o r e ts u n a h a a b u f u u m i n o k a r a a g e t o w a pau ky o o m i b u k a i

@@ -1,0 +1,1 @@
+t o k U sh u s a g i n i a w a n u y o o pau h i g o r o k a r a t a i s a k u o k a N g a e t e o k i m a sh o o

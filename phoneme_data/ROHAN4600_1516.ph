@@ -1,0 +1,1 @@
+d i o d e e t o y o b u o t o k o g a y o o g i sh a d a k a r a pau n u k e n a k U ch e cl k U s u r u y o o n i

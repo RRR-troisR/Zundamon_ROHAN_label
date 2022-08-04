@@ -1,0 +1,1 @@
+j a s u w i N d a a n i ts U k e t a b i k o o w a pau m o n o n o j u cl p u N d e m a k a r e ch i m a cl t a z o

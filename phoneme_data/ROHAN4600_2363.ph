@@ -1,0 +1,1 @@
+f e e b e n o h i m i ts u o m o r a sh I t a n o w a pau ty o r i r u k a

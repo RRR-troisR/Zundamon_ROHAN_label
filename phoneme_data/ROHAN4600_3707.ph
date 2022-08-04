@@ -1,0 +1,1 @@
+ch u u z a b u r o o e n o sh U k u f U k u t o sh I t e pau b i N t e e j i w a i N o o k u r u

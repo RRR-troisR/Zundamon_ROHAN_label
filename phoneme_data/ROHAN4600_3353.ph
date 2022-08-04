@@ -1,0 +1,1 @@
+g o cl k a N n o s a m u z o r a d e k i r a k i r a k a g a y a k u d a i y a m o N d o d a s U t o o pau j e r o o m u t o k a N s o k u sh I t a

@@ -1,0 +1,1 @@
+d o k o k a d e my a a my a a t o k I k o e r u n o d e n a b e n o f U t a o a k e t a r a pau k o n e k o g a i cl p I k i k a k u r e t e m a sh I t a

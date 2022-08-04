@@ -1,0 +1,1 @@
+k a s e N sh I k i d e i ts u gy o o j i g a a r u n o k a pau k o cl s o r i o sh i e t e k u r e n a i k a

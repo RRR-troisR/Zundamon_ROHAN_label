@@ -1,0 +1,1 @@
+k e e sh a k a r a n i g e d a sh I t a n i w a t o r i g a pau s o k o r a j u u k a k e m a w a cl t e i r u

@@ -1,0 +1,1 @@
+k a s o cl t e t a k u a i t i o n o m i s e o ry u sh i e N n u g a s e N d e N sh I t a g a pau h a N j o o n o k i z a sh i w a m i e m a sh I t a k a

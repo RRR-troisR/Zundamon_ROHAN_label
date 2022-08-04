@@ -1,0 +1,1 @@
+a k U sh o N g e e m u w a n i g a t e d a g a pau k o N t i ny u u g a a r e b a k u r i a d e k i r u

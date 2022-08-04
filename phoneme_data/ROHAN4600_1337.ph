@@ -1,0 +1,1 @@
+p o N t I f e k U s u w a i n a k a s o d a ch i d e pau g o k i b u r i o t e d e ts U k a m a e r u

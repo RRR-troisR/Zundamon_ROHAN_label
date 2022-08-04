@@ -1,0 +1,1 @@
+b e e t o o b e N n o ky o k u w a pau s a m a z a m a n a k a N j o o g a w a k i o k o r u

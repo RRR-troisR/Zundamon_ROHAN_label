@@ -1,0 +1,1 @@
+d o r u f u y u s u w a pau k a z o k U k a r a ts u n e z u n e sh i i t a g e r a r e pau i e d e o k e ts u i sh i m a sh I t a

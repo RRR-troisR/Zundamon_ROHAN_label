@@ -1,0 +1,1 @@
+a z i i z a w a pau e r u f u n o n a k a m a t o e e g e k a i e sh u cl k o o sh I t a

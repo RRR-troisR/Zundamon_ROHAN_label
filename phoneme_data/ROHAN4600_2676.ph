@@ -1,0 +1,1 @@
+v e e ry a g o a n o t a b i d e pau s e k a i g a h i r o g a r i m a sh I t a

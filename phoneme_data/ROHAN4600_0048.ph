@@ -1,0 +1,1 @@
+k u a a ch i w a a y a sh i g e n a s e m i n a a d e pau m a k i y a v e r i z u m u n i d o cl p u r i s o m a cl t a

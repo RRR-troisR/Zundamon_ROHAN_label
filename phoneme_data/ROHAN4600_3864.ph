@@ -1,0 +1,1 @@
+w o o r i i g a pau p i ny a k o r a a d a o h I t o ts U ch u u m o N sh I t e pau n o N d e i m a sh I t a

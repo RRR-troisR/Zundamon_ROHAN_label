@@ -1,0 +1,1 @@
+p e ts e r u t o h i g u m a o k a r i n i d e r u

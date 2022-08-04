@@ -1,0 +1,1 @@
+d o n e ts u i k u d e pau b a i N ts i i r u g a m i s o m e t a h I t o j a pau b a k u z e N t o sh I t e s a g a s e n a i y o

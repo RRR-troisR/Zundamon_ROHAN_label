@@ -1,0 +1,1 @@
+h e r u w i g u w a k a b o ch a o u r a g o sh I sh i pau ts u b u g a n a i k a o ch e cl k u sh I t a

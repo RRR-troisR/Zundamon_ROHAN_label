@@ -1,0 +1,1 @@
+h a i e N d e i k i g u r u sh i i n o d e pau j u gy o o w a y a s u m a s e t e i t a d a k i m a s U

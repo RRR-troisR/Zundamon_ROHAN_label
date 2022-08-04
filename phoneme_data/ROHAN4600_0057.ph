@@ -1,0 +1,1 @@
+m u sh i e z i p u n o m u s U k o g a pau o g i y a a o gy a a t o m i r u k u o m o t o m e r u

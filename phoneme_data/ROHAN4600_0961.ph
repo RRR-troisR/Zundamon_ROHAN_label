@@ -1,0 +1,1 @@
+s u w e e d e N d e r a a m e N o t a b e r u n a r a pau hy u u s u k u v a a n a g a o s u s u m e d a n a

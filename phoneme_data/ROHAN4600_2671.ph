@@ -1,0 +1,1 @@
+ky u u w e r u w a pau k U s a y a g a k U s a i t o k o o g i sh i m a sh I t a

@@ -1,0 +1,1 @@
+b i k U t o r i a w a pau j i k e N g a o k o r u t o t a N t e e g o cl k o n i m u ch u u n i n a r i m a s U

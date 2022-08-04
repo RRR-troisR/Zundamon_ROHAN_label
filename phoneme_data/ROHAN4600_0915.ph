@@ -1,0 +1,1 @@
+h e N ky o o n o ch i d e pau k u e p a r o k u g a m u sh I s a r e r u t o w a pau t a d a n a r a n u j i t a i d a

@@ -1,0 +1,1 @@
+dy o o m i N w a pau k e cl sh o o y a pau a m o r u f a s u n o k I s o g i j u ts u o t e g a k e t e k i t a

@@ -1,0 +1,1 @@
+y u b i n o g i sh i pau s u n a w a ch i e p I t e e z e n o m i b a e w a pau h I t o m u k a sh i m a e y o r i k a n a r i y o k u n a cl t a

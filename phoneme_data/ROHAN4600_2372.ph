@@ -1,0 +1,1 @@
+ch o w o N g a e g a k U hy o o k a i w a pau j i cl sh a s a n a g a r a d a

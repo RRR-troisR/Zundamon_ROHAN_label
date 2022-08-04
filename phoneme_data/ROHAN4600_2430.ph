@@ -1,0 +1,1 @@
+g u r o o sh e f u w a pau dy o n e n i b a s e e o a b i s e m a sh I t a

@@ -1,0 +1,1 @@
+k o k o k a r a h i g a sh i n i m a cl s u g u s u s u m u t o pau p u r o s u k u i i r i u cl t e m a ch i g a a r i m a s U

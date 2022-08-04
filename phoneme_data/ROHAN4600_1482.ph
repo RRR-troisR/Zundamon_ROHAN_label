@@ -1,0 +1,1 @@
+dy u p o o r u w a pau k a ch o u g e cl s e k i o hy o o g e N sh I t a e n i pau h I t o m e b o r e sh i m a sh I t a

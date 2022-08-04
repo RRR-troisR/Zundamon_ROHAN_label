@@ -1,0 +1,1 @@
+n a py e r a r u s u k I t o ch o o sh o k u o t a b e r u n a r a pau h a m u t o b e e k o N n i d a a j i r i N t i i d a n a

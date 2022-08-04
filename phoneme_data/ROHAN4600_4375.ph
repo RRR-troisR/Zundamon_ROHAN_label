@@ -1,0 +1,1 @@
+k o j i n o s e g u o N w a h a k U sh i k i d e pau a r u k U hy a cl k a j i t e N t o m o i e r u h I t o d a

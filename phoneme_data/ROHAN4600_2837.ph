@@ -1,0 +1,1 @@
+ry e e g o w a k i cl t e o ch o o f U sh i w a s u r e pau ch e r i ny a a r e n o n u u ts o N n i pau a N g o o o t o d o k e s o k o n e m a sh I t a

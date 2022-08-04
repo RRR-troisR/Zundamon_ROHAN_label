@@ -1,0 +1,1 @@
+t a sh I k a n i pau g u e r i t o o r e w a s a j i o n a g e t a g a pau v a s a N t o n a r a n i g i r i ts u b u s e r u k a m o

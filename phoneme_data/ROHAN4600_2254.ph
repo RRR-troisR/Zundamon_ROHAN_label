@@ -1,0 +1,1 @@
+h i m i ts u g a m o r e t a k a k u r i ts u w a pau z e r o j a n a i d e s U

@@ -1,0 +1,1 @@
+my a o my a o t o n a i t e r u n o w a pau j a r e t e k a b i N o w a cl t a k a r a

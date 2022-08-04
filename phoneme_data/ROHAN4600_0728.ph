@@ -1,0 +1,1 @@
+v o r u p i w a pau gy u r u gy u r u t o h a r a o k u d a sh i pau k u r u sh i s o o d a cl t a

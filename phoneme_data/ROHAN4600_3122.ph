@@ -1,0 +1,1 @@
+g o k o m a m e n o k o o g i d e w a pau d a i r i n o b e ny o v u s U k i i k a r a pau k u e r u sh i t o r i n a a z e n i ts u i t e o s o w a cl t a

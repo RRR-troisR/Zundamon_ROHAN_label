@@ -1,0 +1,1 @@
+v i cl p a a w a ky u u k a k u n i s u g u r e pau y u g e k a r a y u n o sh u r u i o k a g i w a k e t a

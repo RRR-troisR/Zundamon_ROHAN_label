@@ -1,0 +1,1 @@
+k o k o m a d e m i k i g a g u ny a g u ny a m a g a cl t a pau h a g o r o m o sh i d a r e w a h a j i m e t e d a

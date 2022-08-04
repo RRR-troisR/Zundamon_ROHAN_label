@@ -1,0 +1,1 @@
+b e r i s u f o o d o w a pau d o r a cl g u s U t o a d e k u b a r a r e t a s a N p u r u n o k U s u r i g a pau g i y a k u d a t o m i n u k i m a sh I t a

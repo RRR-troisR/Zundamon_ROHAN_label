@@ -1,0 +1,1 @@
+dy u f u r e e n u g a n e i r u j i k a N n i pau k o cl s o r i b e r a N d a d e t a b a k o o s u u

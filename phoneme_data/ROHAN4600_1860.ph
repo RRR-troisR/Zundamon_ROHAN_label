@@ -1,0 +1,1 @@
+gy o r u gy o N w a pau b o r a N t i a d e t o m o d a ch i g a d e k i t e y o r o k o b i m a sh I t a

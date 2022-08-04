@@ -1,0 +1,1 @@
+m i k u e r u n i a u n i w a pau j a r i m i ch i o m a cl s u g u d e pau m i g i t e n i m i e r u k o N b i n i o s a s e ts u sh I t e k u d a s a i

@@ -1,0 +1,1 @@
+s a N by a k u r o k u j u u g o n i ch i n e r u m a m o o sh i N d e pau k a i z o o n i a k e k u r e t a

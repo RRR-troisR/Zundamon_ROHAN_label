@@ -1,0 +1,1 @@
+s U k e j u u r u g a o sh I t e i r u t a m e pau f i n a a r e w a sh o o ry a k U s a r e m a sh I t a

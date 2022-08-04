@@ -1,0 +1,1 @@
+t i i e n u t i i k a y a k u g a d u u N t o h a z e t e pau a t a r i i ch i m e N g a k e m u i

@@ -1,0 +1,1 @@
+g a i a sh u p e h e r a a n o m e r o d i i w a pau d o k o k a n o s U t a r u j i i d a

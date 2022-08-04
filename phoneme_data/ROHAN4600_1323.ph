@@ -1,0 +1,1 @@
+p u r u k o g i t o y u u r i N ch i i o pau sh I k o t a m a t a b e r u ry o t e e o m o s a k U s u r u

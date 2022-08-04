@@ -1,0 +1,1 @@
+g u u e N d a w a k o cl k i sh I t e pau p i cl k o r o n o p u r a k U t i s u o s a i k a i sh i m a s U

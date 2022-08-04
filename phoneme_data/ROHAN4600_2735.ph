@@ -1,0 +1,1 @@
+f e r i d u N w a pau sh o o k e i n o m a n a z a sh i o gy u s U t a b u n i m u k e r u

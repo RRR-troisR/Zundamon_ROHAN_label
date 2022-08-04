@@ -1,0 +1,1 @@
+p u r a m o d e r u k a r a m o k e e n i h a m a cl t a dy u j a r u d a N w a pau i m a w a u r u g a w a t o sh I t e sh I k u h a cl k u sh I t e i m a s U

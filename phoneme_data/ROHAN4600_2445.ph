@@ -1,0 +1,1 @@
+p u r e b o g a m i k a t a n a r a t a n o m o sh i i d e s U

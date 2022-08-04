@@ -1,0 +1,1 @@
+g o b o d o o n o k a t a w a r a n i t a ts u n o w a pau ry o o sh u n o d o r a py e e r u d a r o o

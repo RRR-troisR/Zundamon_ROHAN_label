@@ -1,0 +1,1 @@
+ry u cl hy e r u g a pau s o t o a s o b i d e d o r o d o r o n i n a cl t e k I t a k U s u r u n o d e pau s e N t a k u n i k u r o o s u r u

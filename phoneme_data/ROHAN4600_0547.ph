@@ -1,0 +1,1 @@
+h a ch o o ch o o w a i k a ts e e d u a t o y o b u g a pau h a ts u o N g a m u z u k a sh i i d a r o

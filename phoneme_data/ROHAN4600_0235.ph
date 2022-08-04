@@ -1,0 +1,1 @@
+t o ny a cl ts i m o a r a f o o t o n a r i pau h a ts u g e N n o t o g e t o g e sh i s a g a h e r i pau m a r u k u n a cl t a n a

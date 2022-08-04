@@ -1,0 +1,1 @@
+a r e g a d u k a a r e ky u u d e N d e a r u k o t o w a pau i ch i m o k u ry o o z e N d a

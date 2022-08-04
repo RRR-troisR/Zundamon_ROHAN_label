@@ -1,0 +1,1 @@
+sh e r i i w a pau t u u t u u t o t a N g i N g u s u r u m o n o n o pau o sh I k u m o n a r i m a s e N

@@ -1,0 +1,1 @@
+r o cl p I k i n o ch o o o e g a i t a k o r e w a d a s a k u d a g a pau j i s a k u w a w e cl s e r i N g u n o d o g i m o o n u k u z e

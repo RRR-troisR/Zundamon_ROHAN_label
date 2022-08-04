@@ -1,0 +1,1 @@
+d i y u d o n e cl t e pau s a a m o g u r a f i y a sh i i t i i d e k a sh I k a s a r e t a j i N t a i n i n e cl ky o o s u r u n o

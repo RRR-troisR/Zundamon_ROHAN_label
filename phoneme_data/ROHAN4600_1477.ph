@@ -1,0 +1,1 @@
+ky o o t e e g a o w a cl t a r a pau y o r u m a d e py u u r o r a N d o d e s u g o sh i m a sh o o

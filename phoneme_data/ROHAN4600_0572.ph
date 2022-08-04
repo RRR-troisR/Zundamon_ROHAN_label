@@ -1,0 +1,1 @@
+s o n o ky o o ch i n i m a d e t a d o r i ts u i t a r a pau m o h a y a f i i ry o w a t o m a r a n a i d a r o o

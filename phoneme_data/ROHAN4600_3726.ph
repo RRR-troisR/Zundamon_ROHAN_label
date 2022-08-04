@@ -1,0 +1,1 @@
+f a a m u w e a m a ny u a r u n o hy o o sh i g a pau k u r o ch a k a r a by a k u r o k u e k a w a cl t a

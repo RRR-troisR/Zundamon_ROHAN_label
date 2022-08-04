@@ -1,0 +1,1 @@
+k u e s u b u d e sh I t a r a pau k u r i d e b i i r u n o j u N b i o sh I t e r u h a z u d e s U

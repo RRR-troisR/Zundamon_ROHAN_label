@@ -1,0 +1,1 @@
+sh i d o n i sh i n e t o n o n o sh i r a r e t e m o pau k o n o ch a u ch a u o n a ts U k e r u z o

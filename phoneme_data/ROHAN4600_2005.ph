@@ -1,0 +1,1 @@
+w e g u a N e k i d e pau k i sh i o m i k a k e m a sh I t a

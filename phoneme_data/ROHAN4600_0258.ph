@@ -1,0 +1,1 @@
+t e g u r a sh i i i w a pau n u p u ts e n o i t a d a k i o m e z a s U t o ch I k a cl t a

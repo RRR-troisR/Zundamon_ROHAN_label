@@ -1,0 +1,1 @@
+f U t o k o r o n i ky u u r i o sh i n o b a s e t e pau k a cl p a s a g a sh i n i d e k a k e m a s U

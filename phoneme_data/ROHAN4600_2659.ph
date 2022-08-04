@@ -1,0 +1,1 @@
+s a N b a n o f o r o o d e pau b i j a n o k o g a u b u g o e o a g e m a sh I t a

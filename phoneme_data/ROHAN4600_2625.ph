@@ -1,0 +1,1 @@
+f e y e sh u n i w a pau f U t a r i n o k e r a i g a i m a s U

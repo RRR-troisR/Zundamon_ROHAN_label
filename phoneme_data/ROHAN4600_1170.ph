@@ -1,0 +1,1 @@
+k a r e w a d a i my o o n o sh i s o N d e pau ry o o r i o t a b e s u g i m e t a b o d a s o o d a

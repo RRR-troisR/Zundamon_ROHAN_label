@@ -1,0 +1,1 @@
+k o r e w a pau i e N s e N n o f U t o o sh I k i d e g i r o N s a r e r u k e e k o o g a a r i m a s U

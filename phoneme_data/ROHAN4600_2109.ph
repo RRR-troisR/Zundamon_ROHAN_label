@@ -1,0 +1,1 @@
+f o ny o o d o n i w a pau g i t a i n i s u g u r e t a g a g a i r u

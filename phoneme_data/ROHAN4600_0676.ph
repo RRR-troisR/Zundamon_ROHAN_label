@@ -1,0 +1,1 @@
+b o o ch e d e o s u s u m e n o k o s u m e o pau s a i y a s u n e d e k a i m a sh I t a

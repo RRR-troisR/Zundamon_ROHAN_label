@@ -1,0 +1,1 @@
+p a p a g a a n o o t o k o o sh i N s o k o n i k u N d e i t a k o t o pau sh i cl t e i m a s U k a

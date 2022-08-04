@@ -1,0 +1,1 @@
+f a u s U t o n o t a t a k a i w a pau b o k U sh i i n i o o k i n a e e ky o o o a t a e m a sh I t a

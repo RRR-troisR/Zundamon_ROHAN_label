@@ -1,0 +1,1 @@
+a y a m a ch I t e w a a r a t a m u r u n i h a b a k a r u k o t o n a k a r e pau t o i cl t a ch e r u k u o cl ts i n o k o e g a pau a t a m a o y o g i r u

@@ -1,0 +1,1 @@
+sh I ts u r e N ch o k u g o k a r a pau m i k i e t i N g a h e y a n i h I k i k o m o r i pau s u d e n i n i j u u n e N g a k e e k a sh I t e i m a s U

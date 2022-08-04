@@ -1,0 +1,1 @@
+g u e r u f u n o sh i N ry a k U s o k u d o pau m a s a n i r a i j i N n o g o t o sh i j a

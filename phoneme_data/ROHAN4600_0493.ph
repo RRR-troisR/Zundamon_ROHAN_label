@@ -1,0 +1,1 @@
+s e N e ts u n a g a r a pau k u e ts u a r u k o a t o r u s u n o ch o o z o o o pau j i s e N s a s e t e i t a d a k i m a s U

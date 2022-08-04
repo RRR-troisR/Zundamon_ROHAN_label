@@ -1,0 +1,1 @@
+h a ch i g a ts u n o g e j u N n i m o n a r e b a pau b e r a a g e t o f i t u u sh i n o g i k o ch i n a s a m o pau i k u b a k U k a m a sh i n i n a r u d e sh o o

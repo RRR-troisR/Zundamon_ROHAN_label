@@ -1,0 +1,1 @@
+k u a i t i o o pau j u n e e b u d e n a j i m u a j i ts U k e n i a r e N j i sh i pau r e N j i ts u gy o o r e ts u d e a r a k a s e g i d a

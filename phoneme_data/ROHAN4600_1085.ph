@@ -1,0 +1,1 @@
+a N t i i k u n o ts U k u e g a t o d o k u n o o pau ch o b o t o w a m a ch i n o z o N d e m a s U

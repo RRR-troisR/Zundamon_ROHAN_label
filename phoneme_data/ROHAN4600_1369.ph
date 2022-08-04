@@ -1,0 +1,1 @@
+s a k u y a k a r a by u u hy e N b a cl h a w a pau a m e k a z e g a ts u y o k u a r e t e m a s U

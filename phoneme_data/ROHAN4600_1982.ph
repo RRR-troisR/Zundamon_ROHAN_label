@@ -1,0 +1,1 @@
+k o o s o k U s a r e t a y u f i w a pau y u b a o y u b i n i m a i t e i t a r a pau y u u f o o o m i t a

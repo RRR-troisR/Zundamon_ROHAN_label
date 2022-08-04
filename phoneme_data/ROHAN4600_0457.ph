@@ -1,0 +1,1 @@
+z a r i py e n o k a m a d e pau m i n a g a by o o d o o n i pau h a n a g a r a n o t o o k i o y a k i m a sh I t a

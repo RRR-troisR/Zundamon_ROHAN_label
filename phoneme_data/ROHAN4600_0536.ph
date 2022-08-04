@@ -1,0 +1,1 @@
+k a k u g e e d a t o pau b a r u ny a sh e f u n i r a N ny u u s a r e t a r a k a ch i m e g a n a i z o

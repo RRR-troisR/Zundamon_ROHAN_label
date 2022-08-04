@@ -1,0 +1,1 @@
+ch u u g o k u d e w a pau h a k a r i u r i g a i cl p a N t e k i n a n o d a s o o d a

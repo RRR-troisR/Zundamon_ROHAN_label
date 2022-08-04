@@ -1,0 +1,1 @@
+y e ry o o m e N k o w a pau t e N g a i k o d o k U t o k i i t a

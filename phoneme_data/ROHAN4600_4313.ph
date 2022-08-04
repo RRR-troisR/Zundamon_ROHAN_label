@@ -1,0 +1,1 @@
+h a n o ky o o s e e o s u r u n a r a pau n u m a s a w a sh i k a g a o s u s u m e d a y o

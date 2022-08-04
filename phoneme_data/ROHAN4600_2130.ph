@@ -1,0 +1,1 @@
+b o n a b e N t u r a g a pau n o ch e r o sh e e k u o m i z u d e u s u m e r u

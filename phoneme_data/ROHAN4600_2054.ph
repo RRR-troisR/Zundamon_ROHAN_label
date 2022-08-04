@@ -1,0 +1,1 @@
+g u e N my o N n o ch I k a r a n o m i n a m o t o g a w a k a r i m a s e N

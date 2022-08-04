@@ -1,0 +1,1 @@
+ky o n e N n o w i n i N g u r a N n o o m o i d e o pau h I t o b a N j u u k I k a s a r e m a sh I t a

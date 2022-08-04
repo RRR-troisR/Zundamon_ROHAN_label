@@ -1,0 +1,1 @@
+gy o o r e ts U k e e s a N b a k a r i sh I t e i t a n o d e pau n o o g a p a N k U sh i s o o d a

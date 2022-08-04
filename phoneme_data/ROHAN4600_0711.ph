@@ -1,0 +1,1 @@
+t a k a d a k a k u a cl d o k o a d e pau r e N p a g a k a k a cl t a k o N p e n i n o z o m u n o w a m u ch a d a y o

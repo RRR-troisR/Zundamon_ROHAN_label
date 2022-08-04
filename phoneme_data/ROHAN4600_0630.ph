@@ -1,0 +1,1 @@
+j a g u r a a d e m a cl t a k U p e k a r a z u pau b i my o o n i k a o g a a o k u n a cl t e m a s U n e

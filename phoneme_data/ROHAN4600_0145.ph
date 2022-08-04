@@ -1,0 +1,1 @@
+b o k o o d a a n o k o o sh i g a k i n i n a r u n a r a pau k u i w o N p a o t a z u n e r o

@@ -1,0 +1,1 @@
+sh i i t o dy o N d e pau s a i g o o m u k a e m a sh I t a

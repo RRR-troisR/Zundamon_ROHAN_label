@@ -1,0 +1,1 @@
+k u r e s U ty a N w a pau a m a d o o k u r i m a sh I t a

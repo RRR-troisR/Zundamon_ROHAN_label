@@ -1,0 +1,1 @@
+d o r a f U t o d e ny u u d a N sh I t a s e N sh u n o n a k a d e pau b a a ch u n i w a h I t o k i w a h I k a r u m o n o o k a N j i m a sh I t a

@@ -1,0 +1,1 @@
+t o b i r a n o s a k I k a r a pau gy u N sh e n o v o o k a r u g a k I k o e r u

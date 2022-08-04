@@ -1,0 +1,1 @@
+w i j e r a t o n e w a pau k i N p o o g e n o y o b i n a g a w a k a r a z u pau j i sh o o h I k u

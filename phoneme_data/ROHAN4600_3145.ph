@@ -1,0 +1,1 @@
+sh i z u o k a d e hy o ny o N t o w a k a r e pau w a k a i s u r u k o t o w a n a k u pau e e e N n i a u k o t o m o n a k a cl t a

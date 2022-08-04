@@ -1,0 +1,1 @@
+my o o ch o o pau ky o o ky a k u d e py o N py o N h a n e r u y u u t a i r u i g a pau h o g o s a r e r u

@@ -1,0 +1,1 @@
+h o t e cl t a by a o w a pau j a g u ch i o h i n e r i m a sh i t a

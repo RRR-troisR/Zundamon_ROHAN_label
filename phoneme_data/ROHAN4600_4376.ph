@@ -1,0 +1,1 @@
+k a ts U t e pau n o b i w a g a cl k o o d e h a i s e e s a r e pau m i j i m e n a o m o i o sh I t a

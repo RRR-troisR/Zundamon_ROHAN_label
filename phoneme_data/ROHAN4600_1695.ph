@@ -1,0 +1,1 @@
+n u s a d u a d e k a cl t a sh e r i i sh u g a pau s u i k u n a cl t e i m a sh I t a

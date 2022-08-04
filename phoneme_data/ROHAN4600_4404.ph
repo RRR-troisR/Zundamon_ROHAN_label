@@ -1,0 +1,1 @@
+w a r e w a r e b o N j i N n i pau w i s U k i i n o a j i n a d o w a k a r i m a s e N

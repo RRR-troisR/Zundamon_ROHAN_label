@@ -1,0 +1,1 @@
+ny u u j e N t o w a pau k o my u ry o k u g a t a k a i s e e n e N d a cl t a n a

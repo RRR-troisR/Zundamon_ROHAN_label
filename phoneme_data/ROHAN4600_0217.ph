@@ -1,0 +1,1 @@
+ch i i s a i p a p a r a ch i a s a f a i a d a g a pau r a p I s u r a z u r i n a m i n i t a k a i z e

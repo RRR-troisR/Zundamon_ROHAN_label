@@ -1,0 +1,1 @@
+d i o g e n e s u w a pau f u r u h a t a n o p u r o p o o sh o N n i sh i cl t o s u r u

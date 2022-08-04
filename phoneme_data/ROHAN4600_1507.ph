@@ -1,0 +1,1 @@
+y u cl k e t o y u k a r i j i o n o sh o o b u d a g a pau j u u p u g a t e k i d e w a b u g a w a r u i

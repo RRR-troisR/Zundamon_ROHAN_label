@@ -1,0 +1,1 @@
+ty o r i r u w a pau t a k u m i n i t o r a cl p u o i N p e e sh I t a ts u m o r i d a g a pau m o r o b a r e d a z e

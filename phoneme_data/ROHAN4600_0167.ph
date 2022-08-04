@@ -1,0 +1,1 @@
+f u y u r e w a sh u b i ry o k u o k I t a e pau ts u a u n i y a w a k o o g e k i ry o k u n i t o cl k a sh i pau p a r a m e e t a o w a r i f u r u

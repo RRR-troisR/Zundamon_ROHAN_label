@@ -1,0 +1,1 @@
+g u o cl k u w a k a r o y a k a n a s U t e cl p u d e pau sh u u i o m i ry o o sh i m a sh I t a

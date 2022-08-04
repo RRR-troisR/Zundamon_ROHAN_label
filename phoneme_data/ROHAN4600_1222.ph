@@ -1,0 +1,1 @@
+k a r e w a sh u g e e o sh I t e i r u g a pau p i a j e n i e e ky o o s a r e t a n o d e g o z a i m a sh o o

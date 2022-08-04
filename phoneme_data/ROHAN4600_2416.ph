@@ -1,0 +1,1 @@
+k a m i o y u cl t e pau ch a i ty a n i m a i r i m a sh o o

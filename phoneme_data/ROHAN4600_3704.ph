@@ -1,0 +1,1 @@
+ch o cl t o s a pau n i h o N j u u k e ts u ky u u ch u u sh o o n o r e p o o t o cl t e k a i t a

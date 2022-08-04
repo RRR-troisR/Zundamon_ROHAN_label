@@ -1,0 +1,1 @@
+sh i b a f u g a sh i g e r u k i s e ts u n i w a pau a z a y a k a n a ch o o g a m i r e r u d e sh o o

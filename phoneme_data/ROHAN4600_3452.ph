@@ -1,0 +1,1 @@
+sh u t e hy a a n o ch a k U s o o w a o m o sh i r o k a cl t a g a pau j i cl s o o g a b o N y o o n a n o d e pau s u N py o o w a i m a i ch i d e sh I t a

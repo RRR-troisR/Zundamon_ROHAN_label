@@ -1,0 +1,1 @@
+sh u r o o d e pau v u u j a cl p i i ch u u o pau g u i cl t o i t a d a i ch a cl t a

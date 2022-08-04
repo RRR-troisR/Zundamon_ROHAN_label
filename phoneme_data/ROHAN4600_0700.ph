@@ -1,0 +1,1 @@
+s a k a z u k i n i w a k o d a w a r i g a a cl t e pau r u m i y a N ts e v o k a r a t o r i y o s e m a sh I t a

@@ -1,0 +1,1 @@
+r e cl sh i w a pau by e N ny u cl i e N g a t a b e t a i t o n o k o t o b a o pau h i r u g a e sh i m a sh I t a

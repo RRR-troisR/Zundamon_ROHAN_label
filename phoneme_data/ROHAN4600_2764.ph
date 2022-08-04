@@ -1,0 +1,1 @@
+v i ch e s u r a a v u n a t o pau k a ch i w a h a N n o o o m a n a b u

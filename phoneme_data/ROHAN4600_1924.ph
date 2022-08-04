@@ -1,0 +1,1 @@
+s e cl ts u a g a s a N sh I k a r a p o r o sh a ts u o ts U k u cl t a g a pau s a i z u g a n a r u k a cl t a

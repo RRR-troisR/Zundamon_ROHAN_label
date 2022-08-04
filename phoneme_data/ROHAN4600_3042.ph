@@ -1,0 +1,1 @@
+ch u k u u e m e k a w a pau ch i N p i r a n i i k a k U s a r e r u t o n i r a m i k a e s U h o d o pau ts u y o k i n a p a a s o n a r i t i i d e s U

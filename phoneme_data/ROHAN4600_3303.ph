@@ -1,0 +1,1 @@
+s u w e e d e N y a n o r u w e e d e w a pau m a ch i n i w a k a i g a k U s e e g a o o k u pau y o r u d e m o k a cl k i g a a r u

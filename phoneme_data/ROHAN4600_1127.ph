@@ -1,0 +1,1 @@
+ky a N p u d e w a j a p u k a g a h a N ch o o t o n a r i pau ch i i m u o k a N p e k i n i m a t o m e t a

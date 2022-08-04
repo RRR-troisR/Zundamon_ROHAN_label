@@ -1,0 +1,1 @@
+k u u ch a N w a pau m i hy a e r u k a r a e N e N t o ky u u a i s a r e pau h o h o o a k a r a m e t a

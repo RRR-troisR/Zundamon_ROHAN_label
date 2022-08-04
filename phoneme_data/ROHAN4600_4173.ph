@@ -1,0 +1,1 @@
+a i sh u u t a d a y o u pau j i N s e e n o d a i b e t e r a N g a s U t e k i d a

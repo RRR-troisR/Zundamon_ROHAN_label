@@ -1,0 +1,1 @@
+s a k u r i ts u cl t e k o t o b a pau ch o o d o sh i r a b e t a t o k o r o d e s U

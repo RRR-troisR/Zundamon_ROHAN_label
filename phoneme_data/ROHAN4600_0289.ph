@@ -1,0 +1,1 @@
+h a d a z a w a r i n i k o d a w a r i pau h a d a g i w a ky u p u r a k a p o r i e s U t e r u d e s U

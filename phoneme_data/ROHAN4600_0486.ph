@@ -1,0 +1,1 @@
+r e i b u p a a t i n o a t o w a k u b i g a k o r i pau a t a m a m o b o N y a r i sh I t e m a s U

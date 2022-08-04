@@ -1,0 +1,1 @@
+ch o o k o o n a g a m e pau a i by o o n o ch a ch a m a r u n i pau ch a o ch u u r u o y a cl t e m a s U

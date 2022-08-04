@@ -1,0 +1,1 @@
+ky o u j i n o sh a sh i N o sh e a s u r u n o w a pau d o o k a t o o m o i m a s U n a

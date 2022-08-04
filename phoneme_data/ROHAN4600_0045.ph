@@ -1,0 +1,1 @@
+t a t o e f U s a k u d e m o pau n e N g u w a k o m e g a hy a cl py o o d a

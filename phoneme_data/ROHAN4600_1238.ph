@@ -1,0 +1,1 @@
+t a i k U ts u k i w a m a r u h a n a sh i o k I k a s a r e t a ny e N g a pau p o k a N t o sh I t e i m a s U

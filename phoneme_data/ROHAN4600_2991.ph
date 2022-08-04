@@ -1,0 +1,1 @@
+j u ny o N w a pau t o ch i j i s e N d e n a m u gy a r u n i i cl py o o n o i k o o o a r a t a m e pau h a k U hy o o o t o o j i t a

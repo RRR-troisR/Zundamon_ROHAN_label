@@ -1,0 +1,1 @@
+k e r i ty o i pau r a pau m a g e d e r e N d e pau t a k a o t e n i s u e t e k a cl p o sh I t a i

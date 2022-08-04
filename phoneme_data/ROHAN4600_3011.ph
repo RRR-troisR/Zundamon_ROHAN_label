@@ -1,0 +1,1 @@
+b e r u d i g a k U ch i b u e o n a r a s U t o h I ts u j i g a z o r o z o r o t o a r a w a r e pau s o n o k a z u w a n i j u cl p I k i d e a cl t a

@@ -1,0 +1,1 @@
+g u o o g u a e n o t a b i n a r a pau r i k u r o g a o s u s u m e d e s U n e

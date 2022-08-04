@@ -1,0 +1,1 @@
+b u r u ts o ts o f u s U k i g a e t a s U t o cl k u o p U sh o N w a pau j i r i j i r i n e o a g e pau i m a y a k a ch i w a g o b a i d e s U

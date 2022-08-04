@@ -1,0 +1,1 @@
+j o y u u g a ky u u by o o d e h a k o b a r e t a

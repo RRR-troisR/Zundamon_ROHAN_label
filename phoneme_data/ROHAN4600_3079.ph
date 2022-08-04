@@ -1,0 +1,1 @@
+t o r a b e r u sh i i n o t a y o r i d e pau dy u h a m e r u g a t a b i s a k i d e n a k u n a cl t a k o t o o sh i r i m a sh I t a

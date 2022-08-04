@@ -1,0 +1,1 @@
+k u o r u s u w a pau sh o cl ch u u sh a k o o b a n i o m o m u k u n o d e y u u j i N g a o o k u pau k o r e k a r a ch u u z o o n i i k U s o o d e s U

@@ -1,0 +1,1 @@
+gy u u k o ts u s u u p u b a k a r i d a t o pau k a r a d a n i h e N ch o o o k I t a sh i m a s U

@@ -1,0 +1,1 @@
+v i p u k e w a d o o s e e t o a s o b u t o pau s u g u h e t o h e t o n i k U t a b i r e r u

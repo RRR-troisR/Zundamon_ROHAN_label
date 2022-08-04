@@ -1,0 +1,1 @@
+y a m i i ch i g a d u ts e n i a r u t o k I k i pau t e e s a ts u n i k i m a sh I t a

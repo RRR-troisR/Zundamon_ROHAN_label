@@ -1,0 +1,1 @@
+ry e t u v o s U t o w a r e b e r u g a ch i g a i s u g i r u sh i pau z a N p a i m o m u b e n a r u k a n a

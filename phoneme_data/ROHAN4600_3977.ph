@@ -1,0 +1,1 @@
+n u m a t a k u N w a pau d o o r u i k o o n o i m i g a d o o sh I t e m o r i k a i d e k i n a i

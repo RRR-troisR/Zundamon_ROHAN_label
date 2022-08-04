@@ -1,0 +1,1 @@
+k a b u d e g o o k U k a s e g i pau b o g u s u r a b u w a a r a t a n a j i gy o o n i ch a k U sh u sh I t a

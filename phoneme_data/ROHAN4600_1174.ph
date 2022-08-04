@@ -1,0 +1,1 @@
+z a cl k u b a r a N n i i u t o pau a s u w a k e N ny o o g a a r u cl t e k o cl t a

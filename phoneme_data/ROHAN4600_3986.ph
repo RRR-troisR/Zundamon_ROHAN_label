@@ -1,0 +1,1 @@
+b u r o cl k o r i i w a pau s a ts u b a ts U t o sh I t a k u u k i n i i y a k e g a s a sh i t e i t a

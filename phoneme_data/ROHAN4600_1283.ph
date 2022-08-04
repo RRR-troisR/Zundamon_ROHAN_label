@@ -1,0 +1,1 @@
+ky o o m o r i g a pau ts i g o i n e r u w a i z e N n o p a r o d i o e N s o o sh i m a sh I t a

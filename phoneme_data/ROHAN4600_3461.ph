@@ -1,0 +1,1 @@
+b u r u dy u u w a pau o cl d o by o r u N t o t a t a k a u gy a N b u r u n i ts u i t e pau t o r i k i m e o k a w a sh i m a sh I t a

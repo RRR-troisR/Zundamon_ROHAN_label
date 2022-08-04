@@ -1,0 +1,1 @@
+hy o o t a N o pau t o ch u u d e k a r e n a i y o o n i s o d a t e r u k o ts u w a a r u k a

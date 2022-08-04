@@ -1,0 +1,1 @@
+ty u d i cl k u w a pau sh i g o j i g o k u n i o ch i r u t o b i b i cl t e m a s U

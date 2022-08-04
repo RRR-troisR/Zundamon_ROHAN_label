@@ -1,0 +1,1 @@
+p a t I sh i e w a p a i n a cl p u r u o k u r i n u k i pau n a k a n i i ch i g o o ts u m e k o N d a

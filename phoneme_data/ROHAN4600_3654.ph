@@ -1,0 +1,1 @@
+t o k o r o g a pau ky o o n o s U k e e a t e t a t e g a m i g a pau z o k u z o k U t o t o d o k i m a sh I t a

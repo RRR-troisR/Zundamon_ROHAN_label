@@ -1,0 +1,1 @@
+z a ts u d e a r a i sh i g o t o d e pau m a j i m e n a w o r a r u o g o m a k a s e ry a pau s e w a n a i z e

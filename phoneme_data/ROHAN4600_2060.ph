@@ -1,0 +1,1 @@
+ry o o k i g a n a g a r e pau y e i t o ts u b u y a k i m a sh I t a

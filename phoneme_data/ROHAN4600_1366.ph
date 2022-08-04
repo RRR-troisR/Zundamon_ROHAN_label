@@ -1,0 +1,1 @@
+ch a N p i o N d e a r u p e r u p e ts u a n o g a j o o w a pau i m a d a k u z u s a r e t e n a i

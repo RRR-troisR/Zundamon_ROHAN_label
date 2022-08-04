@@ -1,0 +1,1 @@
+f a r i i n a g a y a j i o t o b a sh i m a sh I t a

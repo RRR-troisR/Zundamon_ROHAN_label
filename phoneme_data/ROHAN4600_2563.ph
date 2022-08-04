@@ -1,0 +1,1 @@
+j u my o o d e p e cl t o o n a k U sh i pau k u u d u N g a sh o N b o r i s u r u

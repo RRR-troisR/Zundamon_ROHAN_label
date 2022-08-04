@@ -1,0 +1,1 @@
+t u t u sh u g a k u n a i ch o o o m i a g e t e t a r o

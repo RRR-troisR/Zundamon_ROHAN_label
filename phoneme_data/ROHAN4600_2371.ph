@@ -1,0 +1,1 @@
+sh e f a a g a pau a y a m a cl t e k o t a e o b a k u r o sh I t a

@@ -1,0 +1,1 @@
+a m a r i n o sh o cl k u d e pau py u u r i s u w a k o sh i o n u k a sh I t a

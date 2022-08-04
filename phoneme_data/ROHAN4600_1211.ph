@@ -1,0 +1,1 @@
+g u r a cl ts e pau sh a a p e i g a k a g u n o w a pau k o k o n i n a n i k a g a a r u sh o o k o y o

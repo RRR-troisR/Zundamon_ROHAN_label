@@ -1,0 +1,1 @@
+sh o o g a ts u n i k a t a n a n o e o n i g i r i pau t a t e n i ch a r e N j i s u r u

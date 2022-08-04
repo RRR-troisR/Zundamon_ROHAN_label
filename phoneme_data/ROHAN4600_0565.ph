@@ -1,0 +1,1 @@
+t u p a a n a k u w a pau p o sh e cl t o o s a g a s a n a k a cl t a k o t o n i pau k a i k o N n o n a m i d a o n a g a s u

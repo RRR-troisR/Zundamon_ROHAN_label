@@ -1,0 +1,1 @@
+h e N k o o h o o d o o o pau e v u i e N w a u n o m i n i sh i m a sh I t a

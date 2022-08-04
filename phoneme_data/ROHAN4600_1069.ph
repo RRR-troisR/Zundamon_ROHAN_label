@@ -1,0 +1,1 @@
+dy a N f u r e s u s a m a pau s o r o s o r o m e o s a m a sh I t e k u d a s a i m a s e

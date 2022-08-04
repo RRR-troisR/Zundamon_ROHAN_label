@@ -1,0 +1,1 @@
+b u t a i h a i y u u o m e z a sh I t e pau g u r u N b e r u k u w a n i ch i y a k e e k o n i h a g e m i m a s U

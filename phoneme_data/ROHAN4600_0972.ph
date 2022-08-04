@@ -1,0 +1,1 @@
+ts u b o n o k o m a k a n a o o t o ts u w a pau s a k U sh a r e o my u u r u n o sh o m e e d a s o o n a

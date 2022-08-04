@@ -1,0 +1,1 @@
+s u d e n i m a k e sh i a i d e w a a r u g a pau ch a ny o r u w a m a k e n o b i g a k u o ts u i ky u u sh i pau n e b a r i ts u z u k e t a

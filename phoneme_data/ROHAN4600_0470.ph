@@ -1,0 +1,1 @@
+k o h a N n o y a d o d e pau a m a n o j a k u n o b a r u hy a t o i cl p a k u d e s U k a

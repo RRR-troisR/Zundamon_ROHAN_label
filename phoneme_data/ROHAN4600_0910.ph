@@ -1,0 +1,1 @@
+j o z o n i k I k u k a g i r i pau k a r a t e y o b e d e n o j o r u d i n o hy o o b a N w a pau d a t o o d a n a a

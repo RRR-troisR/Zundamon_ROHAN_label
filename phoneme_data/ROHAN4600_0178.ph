@@ -1,0 +1,1 @@
+ch o r e g i s a r a d a w a pau g o m a a b u r a n o k a o r i d e ky u u r i g a h I k i t a ts u

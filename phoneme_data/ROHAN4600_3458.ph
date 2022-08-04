@@ -1,0 +1,1 @@
+z e h i m o n a i f e e k u j o o h o o n i o d o r a s a r e t e k a r a pau d u m e N ts a d e w a w a k a m o n o g a i b i sh I t e m a s U

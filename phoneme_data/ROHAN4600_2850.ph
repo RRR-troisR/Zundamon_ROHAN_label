@@ -1,0 +1,1 @@
+y e j e i ch a k u n o k e N k a g a t a z e e n i b u z e e n a n o d e pau w a r e w a r e m o s U k e d a ch I sh i m a s e N k a

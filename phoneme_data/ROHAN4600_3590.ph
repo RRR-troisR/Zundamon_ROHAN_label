@@ -1,0 +1,1 @@
+hy u u b u sh u m a N w a pau sh o o s o n o h a N k e ts u o e t a n o n i pau m a d a m u n a s a w a g i g a s u r u n o w a n a z e

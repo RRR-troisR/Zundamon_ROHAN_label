@@ -1,0 +1,1 @@
+j o n e cl t o w a pau k a k o n i h o by o t o g o o n a r a cl t a g a pau s u d e n i o b o e t e n a i

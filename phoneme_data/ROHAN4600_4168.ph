@@ -1,0 +1,1 @@
+r a p u N ts e r u g a pau t o o n o n a k a n i t o j i k o m e r a r e n a i t e i r u

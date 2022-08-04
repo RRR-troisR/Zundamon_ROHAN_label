@@ -1,0 +1,1 @@
+t o r a cl p u o k a i j o sh i n a i t o pau g u r e n e e d o n o e j i k i d e s U n a

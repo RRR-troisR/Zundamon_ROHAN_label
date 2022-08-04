@@ -1,0 +1,1 @@
+r i N k a n o ky a k u j i N w a pau sh I ch i g a h a m a m a ch i k a r a y a cl t e k i t a y o o d a

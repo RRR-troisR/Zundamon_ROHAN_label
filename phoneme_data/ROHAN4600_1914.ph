@@ -1,0 +1,1 @@
+j a k U t e N n o k o k U f u k u w a pau b u r o o d i g a n i ry u u k a r a d a cl ky a k U s u r u n o n i h i cl s u d e s U

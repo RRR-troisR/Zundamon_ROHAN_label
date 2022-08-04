@@ -1,0 +1,1 @@
+w o r a w i w a pau n a r a i g o t o d e sh a g e k I t o b a j u ts u o ts u z u k e t e i r u

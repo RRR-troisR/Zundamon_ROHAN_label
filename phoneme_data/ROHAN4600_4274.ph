@@ -1,0 +1,1 @@
+k e g a r a w a sh i i h a n a sh i o k i i t a n o d e pau p e d o r o w a k i b u N g a w a r u k u n a r i m a sh I t a

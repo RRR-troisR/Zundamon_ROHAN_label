@@ -1,0 +1,1 @@
+sh e ny a f u s U k i w a ts u n e n i m e o k u b a r i pau d a r e n i m o s o g a i k a N o a t a e n a i y o o k i o ts u k a cl t e u g o k u

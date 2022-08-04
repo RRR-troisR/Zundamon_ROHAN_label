@@ -1,0 +1,1 @@
+hy u u p u n a a n o my u u j i k a r u w a p u r o n i k o k U hy o o s a r e t a g a pau a m a n i w a hy o o k a s a r e t a

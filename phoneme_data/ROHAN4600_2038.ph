@@ -1,0 +1,1 @@
+my u r a i y u w a pau f u cl k o o n i h a g e m i m a sh I t a

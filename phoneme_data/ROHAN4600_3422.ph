@@ -1,0 +1,1 @@
+h o o pau a r u t I ty u u d o n o u n a g i y a d e h a t a r a i t e i t a k e d o pau n a m a k e t e t a r a k u b i n i n a cl t a cl t e

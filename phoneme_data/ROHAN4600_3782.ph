@@ -1,0 +1,1 @@
+ky a cl sh u d i s U p e N s a a e t a ts u n o m o w a z u r a w a sh i i pau j i d a r a k u n a h i b i d a

@@ -1,0 +1,1 @@
+ch o k U ch o k U k u ch i g e N k a m o sh I t a g a pau h i cl p a k u sh I t a r a f u j o s u r u z e

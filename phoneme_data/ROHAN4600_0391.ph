@@ -1,0 +1,1 @@
+k a N j i n o sh i ts u w a pau sh I k a r u t o k o k u j i sh I t e m a g i r a w a sh i i

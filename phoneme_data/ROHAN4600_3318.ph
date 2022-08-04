@@ -1,0 +1,1 @@
+hy u b a a t o g a sh I t a t e r u o o t o k U ch u u r u w a pau y a y a y u r u y a k a n a k i g o k o ch i g a k o o hy o o d a

@@ -1,0 +1,1 @@
+m i n e u ch i g a a s a i o k a g e d e pau t u u s i i w a k i z e ts U s e z u s u N d a cl t e k o t o d a

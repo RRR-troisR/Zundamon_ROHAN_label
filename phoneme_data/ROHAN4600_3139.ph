@@ -1,0 +1,1 @@
+w i cl t e N b a a g u g a m i g a k i n u i t a ny u u k o N n o w a z a d e m o pau sh e e hy u r u i s u r a a m u n i w a t o d o k a n a i

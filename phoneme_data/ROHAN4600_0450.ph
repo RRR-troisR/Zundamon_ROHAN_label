@@ -1,0 +1,1 @@
+g u i n e b i a o s a y u u k a r a k e N s e e sh i pau ty u r a m u g a s e m e r u n o w a i k a g a d e sh o o

@@ -1,0 +1,1 @@
+b i sh o k u n o ky o k U ch i n i w a g i j u ts u g a h I ts u y o o d a g a pau m i g a k U k a k u g o w a a r u k a n e

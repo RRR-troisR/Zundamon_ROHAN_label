@@ -1,0 +1,1 @@
+y o n a k a n i g a i r o o a r u i t e i t a n o w a pau e N j i n o my u u z u d a r o o

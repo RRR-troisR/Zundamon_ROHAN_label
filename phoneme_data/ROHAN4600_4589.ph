@@ -1,0 +1,1 @@
+p i N m a i k u d e pau e N k a k U k a r a m a k u a k e o sh i j i s u r u

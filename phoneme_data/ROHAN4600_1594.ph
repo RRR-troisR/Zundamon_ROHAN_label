@@ -1,0 +1,1 @@
+r a i g e ts u n i gy a b i N g a k u r u k e d o pau b i z a w a d a i j o o b u d a cl k e

@@ -1,0 +1,1 @@
+ky o o k o o d e pau b u N ty a b i i n o sh I s a N g a k i e t a

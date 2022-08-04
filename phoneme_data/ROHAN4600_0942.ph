@@ -1,0 +1,1 @@
+k a r u d u u ch o w a pau ch a N s U t o b a k a r i n i b a i t o o z o o b o sh i t a

@@ -1,0 +1,1 @@
+s a b a k u o m o ch i i f u n i sh I t a pau p u r e ry u u d o g a t a n o sh i m i d e s U n a

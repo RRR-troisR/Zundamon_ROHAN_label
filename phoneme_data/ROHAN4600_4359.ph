@@ -1,0 +1,1 @@
+sh o o t e r u w a pau r a m u y a b u r a N d e e n a d o n o y o o sh u o y o k u n o m u

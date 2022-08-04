@@ -1,0 +1,1 @@
+j e n i i n i w a pau n a k a s u n o d o r a cl g u s U t o a d e k a cl t a by u u r a a o a g e m a s U

@@ -1,0 +1,1 @@
+g a N t a N n i pau k u e r u k U s u o s o n a e m a sh o o

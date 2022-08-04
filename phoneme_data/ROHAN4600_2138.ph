@@ -1,0 +1,1 @@
+g o gy u u ts u k i n i a e g u t o pau w o j o g a ts i i t o sh I t a

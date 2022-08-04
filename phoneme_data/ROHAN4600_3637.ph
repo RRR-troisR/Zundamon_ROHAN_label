@@ -1,0 +1,1 @@
+sh i r o m i z a k a n a t o t o m a t o py u u r e o n i t e i r u k a m a d o n i pau t a k i g i o k u b e m a s U

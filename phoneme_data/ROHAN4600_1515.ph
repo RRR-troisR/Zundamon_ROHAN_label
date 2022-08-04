@@ -1,0 +1,1 @@
+e u r i y u py u r o s u g a k a y o u o f I s u w a pau z u i b u N o k u y u k i g a a r u

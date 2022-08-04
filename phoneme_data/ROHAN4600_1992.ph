@@ -1,0 +1,1 @@
+f a N t a j i i n o s e k a i d e w a pau f U sh i g i t o ch o o z o o g a k i r i f u d a n i n a r u

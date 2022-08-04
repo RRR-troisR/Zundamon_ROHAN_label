@@ -1,0 +1,1 @@
+s o ry a a s e e k a sh u g i w a pau hy u u m a n i z u m u d e t o cl p u n i n a r e r u h o d o r a k u j a n a i z e

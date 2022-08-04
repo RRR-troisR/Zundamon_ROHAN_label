@@ -1,0 +1,1 @@
+sh u r a i e r u m a cl hy e r u n o hy o o b a N w a pau m a t a t a k u m a n i h i r o m a r i m a sh I t a

@@ -1,0 +1,1 @@
+t e e sh o k U ch u u d e h i m a n a n o d e pau e gy u b e r u d e m o n o N d e n e r u k o t o n i sh i m a s U

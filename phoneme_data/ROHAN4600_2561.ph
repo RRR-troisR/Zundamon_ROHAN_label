@@ -1,0 +1,1 @@
+d a r u i n a r a pau y e r u k o v i cl ch i n i m i t e m o r a i t a m a e

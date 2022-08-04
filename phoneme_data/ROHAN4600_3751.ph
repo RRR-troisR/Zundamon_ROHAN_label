@@ -1,0 +1,1 @@
+s o N d e e e pau sh I k o t a m a n o d o sh a k a r a pau ch o o z u y a o h i cl k o n u ky a o cl k e e d a

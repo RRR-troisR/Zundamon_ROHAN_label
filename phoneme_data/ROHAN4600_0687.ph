@@ -1,0 +1,1 @@
+ty u p e r o n o k a n a d e r u ky o k u w a pau ky o m u n o k o k o r o o f u cl sh I k i s u r u ky o k U ch o o d e sh I t a k a

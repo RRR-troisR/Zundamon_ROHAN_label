@@ -1,0 +1,1 @@
+y a m a n a sh i d e t a cl p I ts u n o g u u u s a N g a pau f a m i r i i w a r i b i k i n o sh o r u i o ts u cl k a e s a r e t e i m a sh I t a

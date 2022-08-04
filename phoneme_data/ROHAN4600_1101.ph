@@ -1,0 +1,1 @@
+a t a m a n o u e o pau k a z e g a by u u by u u f U k i n u k e t a t o o m o cl t a g a pau k i n o s e i k a

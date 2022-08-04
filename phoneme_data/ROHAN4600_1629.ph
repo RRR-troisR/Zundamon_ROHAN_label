@@ -1,0 +1,1 @@
+ny e m e ts u n o o s e e b o w a pau v e n e ts i a d e ts U k u r a r e t a j a m u d e sh I t a

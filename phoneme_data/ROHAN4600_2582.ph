@@ -1,0 +1,1 @@
+m a a pau b e ts i g u w a t e N n e N d a k a r a n a

@@ -1,0 +1,1 @@
+b i b u n o a i t e m u i ch i r a N w a pau k a m i z a n o k a t a r o g u n i g o z a i m a s U

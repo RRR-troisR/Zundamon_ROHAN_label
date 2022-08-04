@@ -1,0 +1,1 @@
+b i s a i n a k i z a sh i o pau p o r i y a k o f u g a s a cl ch I sh i m a sh I t a

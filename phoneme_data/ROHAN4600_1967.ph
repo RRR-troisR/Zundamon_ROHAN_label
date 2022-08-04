@@ -1,0 +1,1 @@
+gy a ny a a r u d e h a cl py a k u n i N sh i N d a g a pau by o o i N w a k I s e e ch u u r a sh i i z o

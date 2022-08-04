@@ -1,0 +1,1 @@
+my u N hy e b e r u k u w a pau py e p u sh u o t a cl p u r i k a k e t a p o o r a N d o ry o o r i g a s U k i d a

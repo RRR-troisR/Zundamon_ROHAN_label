@@ -1,0 +1,1 @@
+g u i N s a N n o k u d o k U t o i cl t a r a pau s o ry a n a m i t a i t e e n o m o n o d e w a n a i

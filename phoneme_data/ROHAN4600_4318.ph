@@ -1,0 +1,1 @@
+d a N b e r u d e pau u sh i r o k a r a o o d a sh I t e k u r u t o o r i m a g a pau k o n o h e N n i i r u

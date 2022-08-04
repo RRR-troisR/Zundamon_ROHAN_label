@@ -1,0 +1,1 @@
+py o j u g a n e g o sh i e e t a a t o n a r i pau m u s a b e ts u t e r o n o r i i d a a e s e cl t o k u o k o k o r o m i r u

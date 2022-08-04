@@ -1,0 +1,1 @@
+k i j i ts U k a r a gy a k U s a N sh I t a g a pau d o N g u o N g a hy u cl t e N g e z e e s u n i i k u n o w a m i cl k a g o d e d o o d a

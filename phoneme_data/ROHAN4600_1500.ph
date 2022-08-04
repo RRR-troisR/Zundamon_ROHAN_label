@@ -1,0 +1,1 @@
+ch u v a sh i d e k a N b u r i o t e e ky o o s u r u k o t o w a pau ky o k a sh i m a s e N

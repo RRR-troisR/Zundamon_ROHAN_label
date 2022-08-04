@@ -1,0 +1,1 @@
+k u a u g u n a a r u pau f o o N w a pau s u N d a a o z o r a g a n i g a t e n a n o d e sh o o k a

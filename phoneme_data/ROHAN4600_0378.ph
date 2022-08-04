@@ -1,0 +1,1 @@
+g u e r a cl ts i w a pau g i z a g i z a n o y a s u r i d e m o k u m e o m i g a k i pau h i r u y a s u m i n i ky a N d i o p e r o p e r o n a m e r u

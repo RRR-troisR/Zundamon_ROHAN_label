@@ -1,0 +1,1 @@
+p o N p a d u u r u n i p a N ch i o k u m i a w a s e t a pau y a y a k i b a ts u n a k a m i g a t a d a

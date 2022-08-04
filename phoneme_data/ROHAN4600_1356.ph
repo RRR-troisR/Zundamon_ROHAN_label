@@ -1,0 +1,1 @@
+e cl t o n e pau v o r u py a a n o d e n o h a t a ch i w a pau r i cl p a n a o t o n a n a n o

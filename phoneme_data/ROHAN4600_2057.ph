@@ -1,0 +1,1 @@
+ch o w o o N d e k a k e t a n o r o i g a pau j u ts U sh a n i k a e r i m a sh I t a

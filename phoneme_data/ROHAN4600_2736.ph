@@ -1,0 +1,1 @@
+a r u h i pau t o o s a N g a ch a p a ts u n i s o m e t a

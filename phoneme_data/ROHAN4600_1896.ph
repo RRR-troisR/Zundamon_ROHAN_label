@@ -1,0 +1,1 @@
+t o r u k u a t u s u n o t a k u r a m i o pau sh u N j i n i k a cl p a d e k i r u t o w a pau s a s u g a d e s U n e

@@ -1,0 +1,1 @@
+o o pau m i n a m o n i y a d o s u ts u k I k a g e n o s u i b o k u g a o pau f e r i i ny o w a m i g o t o n i e g a k u n e

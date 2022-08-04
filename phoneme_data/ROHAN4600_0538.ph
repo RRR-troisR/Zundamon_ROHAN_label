@@ -1,0 +1,1 @@
+k o o p a s u b u N z u k u r i d e pau ty a t o n a r a b u m u z u k a sh i s a o h o k o r u n o w a pau dy a t o dy o

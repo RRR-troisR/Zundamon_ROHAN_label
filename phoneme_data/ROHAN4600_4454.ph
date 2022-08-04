@@ -1,0 +1,1 @@
+f U t o cl p a r a n a k a r e w a pau ty o n o a i sh o o d e sh I t a sh i m a r e m a sh I t a

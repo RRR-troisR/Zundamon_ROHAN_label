@@ -1,0 +1,1 @@
+gy u z e r u w a n a i f u o n i g i r i pau w a t a sh i n i m u k e t e hy u N hy u N f u r i m a w a sh i m a sh I t a

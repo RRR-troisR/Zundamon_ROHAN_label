@@ -1,0 +1,1 @@
+k u r o s u i gy u u o sh i r a n a k U t e pau h a N k o y a d e h a j i o k a i ch a cl t a

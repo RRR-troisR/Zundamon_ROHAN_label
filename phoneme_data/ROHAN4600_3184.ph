@@ -1,0 +1,1 @@
+a m a cl ch o r o i hy o o g o o k a k a g e t a v i ts o r e k u d a g a pau s o r e d e s a b a i b u d e k i t a d a r o o k a

@@ -1,0 +1,1 @@
+t o cl s a n o k I t e N d e pau k a m a g u u e i n o k o N k u u r u n i n e j i k o m e t a g a pau a i t e g a k e t a ch i g a i d a cl t a

@@ -1,0 +1,1 @@
+s o r e ry u u s a N d a k a r a pau dy o N s a m a n i s a w a r a s e ch a d a m e d e sh o

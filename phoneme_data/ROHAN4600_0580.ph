@@ -1,0 +1,1 @@
+N N t o pau hy u cl sh u d a cl t a r a pau gy o r e m e d e ts U k i m i b a a g a a o t a b e t e r u y o

@@ -1,0 +1,1 @@
+j i g u m u N t o w a pau sh o t o k u z e e o h a r a i s u g i t e o r i pau k a N p u k i N g a m o d o r i m a sh I t a

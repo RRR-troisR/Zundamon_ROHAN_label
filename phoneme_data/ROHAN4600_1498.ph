@@ -1,0 +1,1 @@
+k i o k u o s o o sh I ts u sh I t a k u a N w a pau ky a r a m e r u d e j i b u N o t o r i m o d o sh i m a sh I t a

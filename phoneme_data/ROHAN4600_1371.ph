@@ -1,0 +1,1 @@
+w o z u ny a cl k u n o o k a g e d e pau k u n u g i n o j u y o o g a h i y a k u t e k i n i n o b i t a

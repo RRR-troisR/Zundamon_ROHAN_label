@@ -1,0 +1,1 @@
+ky o d a i n a s o sh I k i n i pau h I k a r i t o y a m i w a ts U k i m o n o d a

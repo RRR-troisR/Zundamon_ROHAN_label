@@ -1,0 +1,1 @@
+i e N sh i cl d o w a g u N s e e n i h a N t a i sh i pau s a i g o m a d e t a t a k a i m a sh I t a

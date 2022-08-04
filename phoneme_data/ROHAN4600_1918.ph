@@ -1,0 +1,1 @@
+m i n i k u i t o s a g e s u m a r e t e m o pau ch u u r i cl p u o f u m i ts u b u s U k u s e g a n a o r a n u

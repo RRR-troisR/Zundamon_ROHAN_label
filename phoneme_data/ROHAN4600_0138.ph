@@ -1,0 +1,1 @@
+y u z a m a sh i m u k e n i pau m i n e r a r u w o o t a a o b i ch I k u s u r u

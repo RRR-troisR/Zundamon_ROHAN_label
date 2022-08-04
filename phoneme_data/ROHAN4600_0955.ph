@@ -1,0 +1,1 @@
+hy a sh u t i w a pau k o k o r o z a sh i n a k a b a d e z a s e ts u sh I t a g a pau h o cl p u f a a g a y a b o o o ts u g u

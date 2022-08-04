@@ -1,0 +1,1 @@
+py e ny a N s u k u n o pau s e N p a k u n a ch i sh I k i n i h e k i e k i d a

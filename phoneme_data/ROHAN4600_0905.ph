@@ -1,0 +1,1 @@
+g o m i o ch i r a s u n o w a sh I k a t a g a n a i n o d e pau i cl sh o n i k a t a z u k e m a sh o o k a pau sh e y e s u s a N

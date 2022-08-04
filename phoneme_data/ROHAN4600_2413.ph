@@ -1,0 +1,1 @@
+f i sh e r u w a pau s e k I ch u u n i by o o k i g a a r i m a s U

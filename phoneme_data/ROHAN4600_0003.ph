@@ -1,0 +1,1 @@
+g u e r u ts o o n i w a pau s a k e n a r a w o cl k a t o s U p u r i cl ts u a o k o n o m i m a s U n a

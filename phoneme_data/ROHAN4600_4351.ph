@@ -1,0 +1,1 @@
+k o n o w a f u u p a s U t a pau r o o ny a k u n a N ny o n i a i s a r e s o o d a n e

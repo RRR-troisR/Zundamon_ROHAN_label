@@ -1,0 +1,1 @@
+py o N w o N w a d o k u j i n o y u u m o a g a a r i pau sh I t e N m o y u n i i k u d a k a r a pau k a i gy a k U sh o o s e ts u w a d o o k a n a

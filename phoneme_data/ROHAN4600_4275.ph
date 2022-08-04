@@ -1,0 +1,1 @@
+i e e g a a w a pau j i b u N g a t a s U k a r u t a m e n i pau n a k a m a o u r a g i r i m a sh I t a

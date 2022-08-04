@@ -1,0 +1,1 @@
+o b a g a pau t o r i y o f u r u ch e v o i sh i m a e n o i j u u o k i b o o sh i pau ky a cl k a s a r e t e t a

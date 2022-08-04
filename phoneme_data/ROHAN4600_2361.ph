@@ -1,0 +1,1 @@
+f U k u m e N o sh I t e i t a g a pau a r e w a by e f u z o o t o d a

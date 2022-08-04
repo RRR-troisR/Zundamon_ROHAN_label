@@ -1,0 +1,1 @@
+t o r i v o r u ts i o n o ch i r i n i a k a r u k u n a i n o d e pau g u r a cl d o w i N n i g a i d o o t a n o m i m a s U

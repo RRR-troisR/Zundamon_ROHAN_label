@@ -1,0 +1,1 @@
+s o n o z o o g e w a pau sh e r u py e y u s u k u d e k a cl t a n o k a

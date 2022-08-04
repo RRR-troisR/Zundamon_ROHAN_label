@@ -1,0 +1,1 @@
+b o k u w a s e cl ky a k u gy o o d e pau k o my u n i k e e sh o N n o o ry o k u o ts U ch i k a i m a sh I t a

@@ -1,0 +1,1 @@
+p a u d a a s u n o o w a s U k i i m o s u n o b o m o b e t a ts U k a z u pau g o k u j o o n o y u k i sh I ts u d a

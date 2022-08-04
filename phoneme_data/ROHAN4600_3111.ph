@@ -1,0 +1,1 @@
+t o r a b u r u d e k e e y a k u h a k i sh I t a k o t o o pau my a r u b i i g a m u sh I k a e sh I t a n o w a pau m a k o t o n i i k a N d e a r u

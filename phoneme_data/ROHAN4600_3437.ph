@@ -1,0 +1,1 @@
+o sh o o w a g e e m u k i o n a N d e m o f a m i k o N t o y o N d e t a g a pau a r u h I k a r a p u r e s U t e t o y o b i h a j i m e m a sh I t a

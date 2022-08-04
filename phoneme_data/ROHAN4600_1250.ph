@@ -1,0 +1,1 @@
+j o ky o o w a pau r o o ny a k u n a N ny o k u b e ts u n a k u pau y a b a N n a gy o o j i o s u s u m e t e k i m a s U

@@ -1,0 +1,1 @@
+e N ry o g a ch i n i e w e g o o h a n a sh I t a g a pau s a r u sh i b a i t o k i z u k a r e t a

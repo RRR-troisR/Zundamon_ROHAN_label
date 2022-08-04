@@ -1,0 +1,1 @@
+sh a ch o o g a h i cl t a k u r i n i a cl t e pau h a cl py a k u m a N e N n u s u m a r e t a

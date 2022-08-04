@@ -1,0 +1,1 @@
+j i g o n o ch o o s a d e d o o p i N g u g a b a r e t e pau b e ny o v u s U k i i n o m e d a r u g a h a k u d a ts U s a r e t a

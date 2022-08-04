@@ -1,0 +1,1 @@
+k a j i y a m a k e w a ky o o d a i s o r o cl t e pau k o N py u u t a a g a d a i n o n i g a t e d a

@@ -1,0 +1,1 @@
+sh i N ny u u sh a w a pau w e r a a n o t o r i d e o s e N ky o sh i m a sh I t a

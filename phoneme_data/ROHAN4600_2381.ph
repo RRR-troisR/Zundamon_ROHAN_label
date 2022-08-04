@@ -1,0 +1,1 @@
+k o o s o o g a pau p o g u r e b u ny a k u o sh i d o o sh I t a

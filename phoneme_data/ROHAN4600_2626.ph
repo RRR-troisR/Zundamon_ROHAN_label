@@ -1,0 +1,1 @@
+ch o o z a m e o i k a sh I t e r i r i i s u sh i m a sh I t a

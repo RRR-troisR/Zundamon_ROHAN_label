@@ -1,0 +1,1 @@
+k e e k o k u o N o n a r a s U t o pau d o k o k a r a t o m o n a k u ry u u d a N g a t o N d e k i m a sh I t a

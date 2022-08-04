@@ -1,0 +1,1 @@
+ky a d o v a r a d a a w a pau k a w a n o h a N r a N n i m a k I k o m a r e z u n i s u N d a

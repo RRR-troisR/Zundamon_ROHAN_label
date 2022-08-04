@@ -1,0 +1,1 @@
+v i h o d o ts e w a w a pau sh i r o d e m i n e r a r u w o o t a a o h o j u u sh I t a

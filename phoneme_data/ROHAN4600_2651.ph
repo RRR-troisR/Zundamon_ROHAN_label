@@ -1,0 +1,1 @@
+f a g o cl t o n o ky o sh o o pau w i t e k a a o o m a n e k I sh i m a sh I t a

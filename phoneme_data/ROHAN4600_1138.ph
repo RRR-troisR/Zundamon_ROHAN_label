@@ -1,0 +1,1 @@
+p o k a p o k a n o a t a t a k a s a d e pau i n u g a sh i cl p o o m a r u m e g u g u n e t e r u

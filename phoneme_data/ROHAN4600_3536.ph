@@ -1,0 +1,1 @@
+g u u i n e z u g a p a a t i n i s e N n u k i o w a s u r e pau g u r a cl ts i i n i g a ch I k a b a n o s a k a y a n i h a sh i cl t a

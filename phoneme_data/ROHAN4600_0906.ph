@@ -1,0 +1,1 @@
+a ry a pau r i N g u i i s a o ts U k u r u k i g u g a pau r e cl k a sh I k o w a r e ch a cl t a n a

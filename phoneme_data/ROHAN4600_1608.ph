@@ -1,0 +1,1 @@
+f o o g e r u v a i t e w a pau ch o sh o n o a r a s u j i o m a t o m e r u k o t o n i k u r o o sh I t e m a s U

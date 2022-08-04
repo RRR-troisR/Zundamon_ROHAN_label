@@ -1,0 +1,1 @@
+k u u r u t u u r a n o k a j u a r u n a n e cl k u r e s u o sh a n i m u n i s a g a sh i pau z u ts u u g a sh I t e k i m a sh I t a

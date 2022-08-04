@@ -1,0 +1,1 @@
+g o z o o r o cl p u n o t a i s e ts u s a o pau k u a N s a N w a j u u sh i sh I t e i r u

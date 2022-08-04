@@ -1,0 +1,1 @@
+k o t e y o o n o w a pau j i k a s e e w a i N o ts U k u r u t a m e n i pau a cl s a k u k i o k a cl t a

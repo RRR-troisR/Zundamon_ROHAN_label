@@ -1,0 +1,1 @@
+k a o n o u b u g e o k i n i s u r u py a t a k o f u w a pau d a ts u m o o sh i y o o k a m a y o u

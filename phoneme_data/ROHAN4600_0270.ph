@@ -1,0 +1,1 @@
+f u y u r e p u t o e s U t i g a r i by a g a pau r e N z o k u sh I t a dy u u s u d e m a d a k e cl ch a k U sh i n a i

@@ -1,0 +1,1 @@
+g u u o p a a g a k a b e o p i N k u n i n u cl t a g a pau s a N n e N g o n i w a h a g a r e r u d e sh o o

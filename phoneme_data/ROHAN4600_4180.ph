@@ -1,0 +1,1 @@
+o g i n o s a N g a pau k o e o h I k u m e t e sh a b e r u t o i g e N g a m a s U

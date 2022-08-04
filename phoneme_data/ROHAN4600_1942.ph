@@ -1,0 +1,1 @@
+dy a N t i w a pau k u m o m a k u k a sh u cl k e ts u o w a z u r a cl t a g a pau sh u j u ts u d e ch i y u sh I t a y o

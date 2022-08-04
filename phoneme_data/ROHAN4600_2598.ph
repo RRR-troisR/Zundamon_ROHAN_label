@@ -1,0 +1,1 @@
+h i g o r o t o ch i g a u h e e d a N o s e r e k U t o sh i pau gy o cl t o s a r e t a

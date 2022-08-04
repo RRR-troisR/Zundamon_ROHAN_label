@@ -1,0 +1,1 @@
+m i n a s a m a g o z o N j i n o k a r u r o v u ts i d a k e n i pau y a b o n a k a i s e ts u w a h a b u k U k a

@@ -1,0 +1,1 @@
+g e N k i N y o N hy a k u y o N j u u y o e N d e pau w o cl k a o e r a N d a

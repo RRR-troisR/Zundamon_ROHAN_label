@@ -1,0 +1,1 @@
+n o k I sh i t a k a r a pau g u e t o u m e k i g o e g a k I k o e pau o s o r o sh i i k i m o ch i d e s U

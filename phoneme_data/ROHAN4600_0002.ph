@@ -1,0 +1,1 @@
+g e g u a N w a k o n o t o k o r o t a sh a o m i k u d a s u sh i pau ch o cl t o o d o k a s u k a

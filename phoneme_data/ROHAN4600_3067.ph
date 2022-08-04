@@ -1,0 +1,1 @@
+k o t o sh i n o g o g a ts U h a ts U k a d e pau v o r o d o s u g a m a y a g u e s u o t a b i d a cl t e k a r a pau y o n e N n i n a r i m a s U

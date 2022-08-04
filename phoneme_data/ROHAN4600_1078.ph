@@ -1,0 +1,1 @@
+w i cl sh u r i s U t o n o j a w a t i i g a pau m i sh i r a n u d a r e k a k a r a o k u r a r e m a sh I t a

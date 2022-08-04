@@ -1,0 +1,1 @@
+b a a ch a r u n o w a r u i s o k u m e N b a k a r i o t o r i a g e r u n o w a pau y o k u a r i m a s e N

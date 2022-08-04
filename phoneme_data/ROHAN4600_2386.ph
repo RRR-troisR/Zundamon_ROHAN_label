@@ -1,0 +1,1 @@
+ky o N f a n o n a m e r a k a n a h a n a sh i b u r i g a pau sh i r a j i r a sh i i

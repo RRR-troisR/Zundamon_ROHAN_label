@@ -1,0 +1,1 @@
+f o o b o o w a pau s e ky u r i t I ch i i m u n o ch u u s u u n i i m a s U

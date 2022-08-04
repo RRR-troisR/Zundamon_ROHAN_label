@@ -1,0 +1,1 @@
+j o y a n o k a n e w a pau ky o o m a d e my a k u my a k U t o u k e ts u g a r e t e k i t a pau d e N t o o gy o o j i n a n o d e s U

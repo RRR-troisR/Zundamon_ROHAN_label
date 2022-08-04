@@ -1,0 +1,1 @@
+j i s a k u sh I t a k i N ch a k u b u k u r o o a r u ty o m u g a h o sh i g a r u n o d e pau a r a t a n i ts U k u cl t e a g e t a

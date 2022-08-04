@@ -1,0 +1,1 @@
+s o ry a a pau b i d o o d a n i sh i n a i sh e v a r i a w a pau t a i sh I t a m o N j a n a i d e s U k a

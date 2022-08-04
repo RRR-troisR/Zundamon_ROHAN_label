@@ -1,0 +1,1 @@
+p e ry e sh a ts u d e k a i s a i s a r e t a s o o g o N n a sh I k i t e N n i pau gy u m i r u g a sh u cl s e k i sh I t a

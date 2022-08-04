@@ -1,0 +1,1 @@
+v o o k a r u t o g i t a a g a r i k o N sh I t a n o w a pau m o o g o n e N m o m a e n o k o t o d a

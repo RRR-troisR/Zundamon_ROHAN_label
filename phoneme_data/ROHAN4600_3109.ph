@@ -1,0 +1,1 @@
+b o i s u r a b u g a h i m i ts U k e cl sh a o sh U s a i sh i pau h i s o k a n i sh u ch i y a v u n i ts a n a d o n o pau e k I s u p a a t o o h I k i n u i t e r u

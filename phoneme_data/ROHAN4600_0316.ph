@@ -1,0 +1,1 @@
+a n o n e pau s e N gy o j a n a i s a k a n a n o s a sh i m i w a pau sh o k U ch u u d o k u g a k o w a i d e s U cl t e

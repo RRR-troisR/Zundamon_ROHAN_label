@@ -1,0 +1,1 @@
+ch u u o o a f u r i k a n i b u cl sh i o o k u r i pau f o o f o o d o m o i sh a t o sh I t e g e N ch i n i o m o m u k u

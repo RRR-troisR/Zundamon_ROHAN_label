@@ -1,0 +1,1 @@
+k a N k i w a m a cl t a dy u p a r u k u w a pau e e y o t o t o m o n i y e e i t o s a k e b u

@@ -1,0 +1,1 @@
+r o k U sh o o o o t o s u y a k u z a i o k a i n i pau py e sh e v i ch i w a pau hy a cl k i r o h a n a r e t a h o r a sh o v i ts e m a d e d e k a k e t a

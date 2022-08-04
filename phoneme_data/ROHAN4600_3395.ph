@@ -1,0 +1,1 @@
+p a s o k o N n o k a N ky o o s e cl t e e n i f u n a r e n a g u e N hy u u w a pau ch a cl t o d e ky a N d i s u n i t a s U k e o m o t o m e t a

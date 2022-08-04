@@ -1,0 +1,1 @@
+f o r u t e y u n a t u s u w a m u z a i o u cl t a e t a g a pau k e cl ky o k u k i N k o g o k a g e ts u d e a cl t a

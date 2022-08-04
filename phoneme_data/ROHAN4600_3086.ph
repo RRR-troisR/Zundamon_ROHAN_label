@@ -1,0 +1,1 @@
+ky e p u r a b i i k u d e i t o o s e N sh o k U sh i pau n o ch I h o d o r o j e s U t o b e N s u k i i g a pau gy o r u i o k a t a ch i z u k u r i m a s U

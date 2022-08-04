@@ -1,0 +1,1 @@
+k u i r i i n u s u w a pau r o o m a sh i N w a n o k a m i d a t o pau s e e j i N sh I t e k a r a sh i cl t a

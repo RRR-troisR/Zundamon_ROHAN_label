@@ -1,0 +1,1 @@
+n e m u r o k a i ky o o d e pau d e e u w a sh i r o sh a ch i o m i t a

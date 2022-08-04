@@ -1,0 +1,1 @@
+v i g u r u w a pau f u N k i z a m i n o s U k e j u u r u o m a i n i ch I k o n a sh I t e i m a s U

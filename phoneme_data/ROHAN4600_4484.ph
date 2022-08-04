@@ -1,0 +1,1 @@
+u w a s a n o ch a a h a N o t a b e n i pau o j a m a sh i m a sh I t a

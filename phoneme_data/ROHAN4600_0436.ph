@@ -1,0 +1,1 @@
+sh o o b o o k a r a a z u k a cl t a sh i i d i i m o pau b a cl g u n o p o k e cl t o n i i r e t e k u d a s a i

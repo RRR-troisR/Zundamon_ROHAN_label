@@ -1,0 +1,1 @@
+r a sh i i n a w a pau h a r u n o i b u k i o k a N j i t e m a s U

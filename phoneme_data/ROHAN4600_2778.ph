@@ -1,0 +1,1 @@
+my u u ch u a r u f a N d o g a pau b o o d a i n a k o ky a k u o k a k a e r u

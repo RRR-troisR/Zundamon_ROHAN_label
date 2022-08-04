@@ -1,0 +1,1 @@
+d e r u f i i n u n o s o o s o f u w a b e N ch a a ky a p I t a r u d e b o r o m o o k e sh i pau k o k o r a h e N n o j i n u sh I t o n a cl t a

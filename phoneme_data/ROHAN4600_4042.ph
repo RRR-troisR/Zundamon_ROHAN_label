@@ -1,0 +1,1 @@
+k e N k o o n o k a g i t o n a r u r a k U s a N k i N g a pau t e r e b i d e ch u u m o k U s a r e t e i m a s U

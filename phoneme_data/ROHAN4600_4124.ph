@@ -1,0 +1,1 @@
+p i n o g a r a sh I sh o k u b u ts u n o m i t o w a pau f U sh i g i n i o m o w a n a i k a

@@ -1,0 +1,1 @@
+k u e cl k u e cl t o n a k u u m i d o r i n o k o e o k I k u t o pau f u n a y o i g a h i d o k u n a r i m a sh I t a

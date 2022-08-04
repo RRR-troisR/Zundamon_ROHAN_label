@@ -1,0 +1,1 @@
+k a w a i i ny a N k o n o g a r a n o k i m o n o o m i n i ts U k e t e pau o d e k a k e sh i m a s U

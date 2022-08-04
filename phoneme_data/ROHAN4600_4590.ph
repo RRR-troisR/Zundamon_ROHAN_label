@@ -1,0 +1,1 @@
+a r a k a j i m e pau m e n o u g o k i o ky a r i b u r e e sh o N sh I t e a r u

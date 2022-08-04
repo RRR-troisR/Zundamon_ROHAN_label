@@ -1,0 +1,1 @@
+ts e t i ny e d e h i r a k a r e t a t a i k a i n i pau k u j i k a N k a k e t e s a N k a sh i n i i cl t a ch i i m u g a pau sh o s e N d e sh i r i z o k u

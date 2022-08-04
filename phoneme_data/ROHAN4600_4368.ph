@@ -1,0 +1,1 @@
+sh i i sh u p o s u w a pau k u n i n o d a i hy o o t o sh I t e g e e h i N k a N n i m a n e k a r e t a

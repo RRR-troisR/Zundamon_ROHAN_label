@@ -1,0 +1,1 @@
+y o s e n i i k u k e d o pau s e cl k a k u d a k a r a g u a n i i t o i by u k o s u m o i k i m a sh o

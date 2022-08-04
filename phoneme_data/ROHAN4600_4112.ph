@@ -1,0 +1,1 @@
+d i i z e r u k I k a N sh a w a pau k a n a r a z u sh i m o f u r u i w a k e d e w a n a i

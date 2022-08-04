@@ -1,0 +1,1 @@
+b a g u r a my a N w a k a i r i k i d a g a s a m u g a r i n a n o d e pau e a k o N o y o w a m e t e a g e t e ch o o d a i

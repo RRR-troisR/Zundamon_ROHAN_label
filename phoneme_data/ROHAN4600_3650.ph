@@ -1,0 +1,1 @@
+n e k o g a h i z a n i n o cl t e k i t e pau r o cl k i N g u ch e a k a r a t a ch i a g a r e m a s e N

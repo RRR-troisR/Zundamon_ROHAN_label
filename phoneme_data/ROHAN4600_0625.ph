@@ -1,0 +1,1 @@
+w i cl dy a a t o n o sh o o b u pau s o ry a a ch i w a k i pau n i k u o d o r i m a s U z e

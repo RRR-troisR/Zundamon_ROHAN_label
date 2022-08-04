@@ -1,0 +1,1 @@
+s o r e d e w a m i n a s a N pau ky u u r i o t e e m a n i sh I t a h a i k u w a d e k i m a sh I t a k a

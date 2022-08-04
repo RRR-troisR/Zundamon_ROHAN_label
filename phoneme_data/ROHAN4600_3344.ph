@@ -1,0 +1,1 @@
+sh e e N m e cl ts a a n i z u b o sh i o sh I t e k I s a r e pau sh e m u w a g e cl k o o sh i b a r i z o o g o N o a b i s e t a

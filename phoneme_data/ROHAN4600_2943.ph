@@ -1,0 +1,1 @@
+g u w e N d a r u n i y o r u t o pau r o o z e N z u w i i g u w a pau e b i t o h o t a t e n o r i N g u i i n e o k u r u m a n i ts u m u

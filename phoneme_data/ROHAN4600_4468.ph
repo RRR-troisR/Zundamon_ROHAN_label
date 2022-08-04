@@ -1,0 +1,1 @@
+k u b i o sh i m e r u ch I k a r a o ts u y o m e r u t o pau k u e t o n a i t e k a r a pau g u cl t a r i u g o k a n a k u n a cl t e sh i m a i m a sh I t a

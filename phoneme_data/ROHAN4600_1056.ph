@@ -1,0 +1,1 @@
+k u o o t a a n o b e N g o sh i g a pau ny o cl k I t o b i b i N b a o t a b e m a sh I t a

@@ -1,0 +1,1 @@
+e g a t o k u i n a m i h i e r u w a pau b u r o g u n i p a N d a n o ch o o k u a a t o o t o o k o o sh I t a

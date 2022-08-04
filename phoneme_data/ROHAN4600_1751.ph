@@ -1,0 +1,1 @@
+a k u u sh i r a o s u w a j u N j o o d a k a r a pau p u r e z e N t o n i h a n a t a b a o o k u r o o

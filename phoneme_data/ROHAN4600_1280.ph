@@ -1,0 +1,1 @@
+k a my e ny e ts u d e w a pau o o h e e n a t a i d o d a t o k i r a w a r e ch a i m a s U y o

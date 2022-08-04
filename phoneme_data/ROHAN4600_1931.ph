@@ -1,0 +1,1 @@
+b u r a k i p u t e r i g i u s u n o k a s e k i n o ch e cl k u n a r a pau k o n o p a s u o m o ch i n a s a i

@@ -1,0 +1,1 @@
+y u u ry e v u n a w a pau m a k i b a d e n o r o sh i o a g e t a

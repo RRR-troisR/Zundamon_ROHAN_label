@@ -1,0 +1,1 @@
+r u d o w i g u n o pau m o o ts a r u t o n i t a i s u r u py u a n a j o o n e ts u w a k a r a s e m a i

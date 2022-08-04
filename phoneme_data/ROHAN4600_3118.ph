@@ -1,0 +1,1 @@
+f U k u gy o o n o sh u u ny u u g a h o N gy o o o k o e r u y o o n i n a r i pau e s U t a a r a i hy a a w a k o k o r o g a y u r a g u

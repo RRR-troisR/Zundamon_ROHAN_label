@@ -1,0 +1,1 @@
+sh i r o o t o g a pau i m u py e r a a t o r u pau a ry e k u s a a N d o r u pau t o ry e e ch i i t o w a i e n u y o

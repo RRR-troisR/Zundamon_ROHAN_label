@@ -1,0 +1,1 @@
+ch o k o r e e t o f o N dy u w a m e z u r a sh i i n o d e pau h I t o k i w a o o k i n a h I t o d a k a r i g a d e k i m a s U y o

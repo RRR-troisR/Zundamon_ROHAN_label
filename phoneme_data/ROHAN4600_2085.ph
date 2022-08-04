@@ -1,0 +1,1 @@
+t o ty o w a pau s u g i n a m i k u z a i j u u d e s U

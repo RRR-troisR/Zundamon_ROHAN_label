@@ -1,0 +1,1 @@
+s o k o d e pau d u g a ts u k u n a m a e o j i sh o d e m u s a k u i n i ch u u sh U ts u sh i pau d e t e k i t a n o w a d u v e r u n e d e sh I t a

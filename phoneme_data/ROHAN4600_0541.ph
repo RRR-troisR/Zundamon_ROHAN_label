@@ -1,0 +1,1 @@
+k u u o t i y u u s U f i s u o pau t a n o k o d o m o f U k u t o k u b e ts u sh I t e k I k o n a s u

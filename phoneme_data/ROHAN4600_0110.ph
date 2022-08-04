@@ -1,0 +1,1 @@
+d e cl p a r i n i ts u m a z u i t e k o r o b i pau b a n i r a sh e i k u o p e r u sh a k a a p e cl t o n i b u ch i m a k e d o r o d o r o d a

@@ -1,0 +1,1 @@
+y o d o o sh i d e d o r a m a o sh I ch o o sh i pau k i g a ts U k e b a s o r a g a a k a r a m u

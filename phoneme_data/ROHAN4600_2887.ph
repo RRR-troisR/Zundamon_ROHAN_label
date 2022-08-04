@@ -1,0 +1,1 @@
+k a z a r u g u r a cl s o n i i k u b a s u d e y o cl t a n o d e pau m u g a n o ky o o ch i d e t o o k u o n a g a m e pau t a e t e m a s U

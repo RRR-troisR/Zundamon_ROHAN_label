@@ -1,0 +1,1 @@
+f a N hy u m e r u w a pau j i sh a k u n o ky o k U s e e t o s e k i ry o k u n o s o N z a i o pau j i r i k i d e h a cl k e N d e k i m a sh I t a

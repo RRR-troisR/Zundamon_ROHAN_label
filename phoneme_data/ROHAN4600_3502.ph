@@ -1,0 +1,1 @@
+f u ny a d i w a pau r o m a N t i cl k u n a m a ts u r i y o r i pau a o m o r i n e b u t a n a d o pau s u g o m i g a a r u d a sh i m a ts u r i o k o n o m u

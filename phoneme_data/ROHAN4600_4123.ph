@@ -1,0 +1,1 @@
+s e ts u g o o s o o n o a o m i d o r o w a pau n a N by a k u sh u m o a r u t o h a j i m e t e sh i cl t a

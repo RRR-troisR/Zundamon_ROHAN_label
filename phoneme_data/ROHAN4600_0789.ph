@@ -1,0 +1,1 @@
+sh u m a r i e sh u k e pau t o p u r i ts e n i pau sh i n a i o m o cl t a m u k a sh i n a g a r a n o k o o ch i g a i r u cl t e s a
